@@ -35,5 +35,5 @@ jobs:
               git config --global user.name "DikaArdnt"
               git config --global user.email "mail@dikaardnt.com"
               git add README.md
-              git commit -m "Kata-kata untuk $(date +'%d %B %Y')"
+              git commit -m "Kata-kata untuk $(TZ=Asia/Jakarta date +'%d %B %Y')"
               git push
