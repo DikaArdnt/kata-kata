@@ -1,0 +1,39 @@
+name: Kata-kata Hari Ini
+
+on:
+   schedule:
+      - cron: '0 0 * * *'
+   workflow_dispatch:
+
+jobs:
+   update-readme:
+      runs-on: ubuntu-latest
+
+      steps:
+         - name: Checkout repository
+           uses: actions/checkout@v2
+
+         - name: Fetch random quote from API
+           id: fetch_quote
+           run: |
+              response=$(curl -s https://dikaardnt.com/api/random/quotes)
+              echo "::set-output name=content::$(jq -r '.content' <<< "$response")"
+              echo "::set-output name=character::$(jq -r '.character' <<< "$response")"
+              echo "::set-output name=status::$(jq -r '.status' <<< "$response")"
+
+         - name: Update README.md
+           run: |
+              cat <<EOF > README.md
+              "**${{steps.fetch_quote.outputs.content}}**"
+
+              > ~ _By ${{steps.fetch_quote.outputs.character}}_  
+              ${{steps.fetch_quote.outputs.status}}
+              EOF
+
+         - name: Commit and push changes
+           run: |
+              git config --global user.name "DikaArdnt"
+              git config --global user.email "mail@dikaardnt.com"
+              git add README.md
+              git commit -m "Kata-kata untuk $(date +'%d %B %Y')"
+              git push
