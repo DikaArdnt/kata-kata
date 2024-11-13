@@ -1,4 +1,4 @@
-"**Barangkali Tuhan sedang tidak ingin kamu jatuh cinta. Agar kamu bisa mencintai dirimu lebih lama.**"
+"**Manusia yang paling lemah adalah orang yang tidak mampu mencari teman. Namun yang lebih lemah dari itu adalah orang yang mendapatkan banyak teman tetapi menyia-nyiakannya.**"
 
-> _~ By Boy Candra_  
-Penulis dari Indonesia 
+> ~ _By Ali bin Abi Thalib_  
+Pemeluk Islam pertama dan juga keluarga dari Nabi Muhammad
