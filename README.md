@@ -1,4 +1,4 @@
-"**Manusia yang paling lemah adalah orang yang tidak mampu mencari teman. Namun yang lebih lemah dari itu adalah orang yang mendapatkan banyak teman tetapi menyia-nyiakannya.**"
+"**Kamu enggak perlu berlagak seakan-akan hanya kamu sendiri yang pernah kehilangan.**"
 
-> ~ _By Ali bin Abi Thalib_  
-Pemeluk Islam pertama dan juga keluarga dari Nabi Muhammad
+> ~ _By _  
+
