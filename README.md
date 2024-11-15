@@ -1,4 +1,4 @@
-"**Kamu enggak perlu berlagak seakan-akan hanya kamu sendiri yang pernah kehilangan.**"
+"**Ayo berdiri tak perlu saling mencaci, ayo berdiri bangsa lain menjelajah galaksi, ayo berdiri bangkit jangan tidur lagi, ayo berdiri buktikanlah kita berarti.**"
 
-> ~ _By _  
-
+> ~ _By Tony Q Rastafara_  
+Penyanyi dari Indonesia
