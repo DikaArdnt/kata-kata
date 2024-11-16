@@ -1,4 +1,4 @@
-"**Ayo berdiri tak perlu saling mencaci, ayo berdiri bangsa lain menjelajah galaksi, ayo berdiri bangkit jangan tidur lagi, ayo berdiri buktikanlah kita berarti.**"
+"**Anda tidak bisa menjadi pengamat biasa dari sesuatu yang lucu - Anda harus terlibat, Anda harus merasa lucu agar hubungan antara aktor dan penonton dapat berjalan.**"
 
-> ~ _By Tony Q Rastafara_  
-Penyanyi dari Indonesia
+> ~ _By Brendan Coyle_  
+Aktor Inggris-Irlandia
