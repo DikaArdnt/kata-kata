@@ -1,4 +1,4 @@
-"**Anda tidak bisa menjadi pengamat biasa dari sesuatu yang lucu - Anda harus terlibat, Anda harus merasa lucu agar hubungan antara aktor dan penonton dapat berjalan.**"
+"**Saya pikir menulis tentang seseorang saat ini akan sedikit lebih dekat dengan apa yang biasa saya lakukan.**"
 
-> ~ _By Brendan Coyle_  
-Aktor Inggris-Irlandia
+> ~ _By Adam Clymer_  
+Jurnalis Amerika
