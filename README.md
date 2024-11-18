@@ -1,4 +1,4 @@
-"**Saya pikir menulis tentang seseorang saat ini akan sedikit lebih dekat dengan apa yang biasa saya lakukan.**"
+"**Sejak menjadi bankir sentral, saya telah belajar untuk bergumam dengan ketidaklogisan yang besar. Jika saya tampak terlalu jelas bagi Anda, Anda pasti salah memahami apa yang saya katakan.**"
 
-> ~ _By Adam Clymer_  
-Jurnalis Amerika
+> ~ _By Alan Greenspan_  
+Presiden bank sentral (1987-2006) dari Amerika Serikat
