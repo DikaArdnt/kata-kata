@@ -1,4 +1,4 @@
-"**Sejak menjadi bankir sentral, saya telah belajar untuk bergumam dengan ketidaklogisan yang besar. Jika saya tampak terlalu jelas bagi Anda, Anda pasti salah memahami apa yang saya katakan.**"
+"**Betapa sedikit orang yang suka menemukan diri dalam kekuatan yang cukup untuk tetap tidak bergerak!**"
 
-> ~ _By Alan Greenspan_  
-Presiden bank sentral (1987-2006) dari Amerika Serikat
+> ~ _By Francois Mauriac_  
+Penulis dan Peraih Nobel sastra (1952) dari Perancis
