@@ -1,4 +1,4 @@
-"**Tuhan selalu memberi yang manusia butuhkan, bukan yang manusia inginkan.**"
+"**Tulislah tentang aku dengan tinta hitam atau tinta putihmu. Biarlah sejarah membaca dan menjawabnya.**"
 
-> ~ _By Angelique Puspadewi_  
-The Rising Star
+> ~ _By Soekarno_  
+Presiden pertama Indonesia
