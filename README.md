@@ -1,4 +1,4 @@
-"**Tulislah tentang aku dengan tinta hitam atau tinta putihmu. Biarlah sejarah membaca dan menjawabnya.**"
+"**Waktu yang tak pernah siuman, kecuali disadarkan, adalah kenisbian yang mengada. Sehingga hidup menjadi berada di ruang yang membentang seujung horizon berketerbatasan.**"
 
-> ~ _By Soekarno_  
-Presiden pertama Indonesia
+> ~ _By Agus Faizal_  
+Penulis Indonesia
