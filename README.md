@@ -1,4 +1,4 @@
-"**Waktu yang tak pernah siuman, kecuali disadarkan, adalah kenisbian yang mengada. Sehingga hidup menjadi berada di ruang yang membentang seujung horizon berketerbatasan.**"
+"**Bagi sains, akhir dari perjuangan evolusi hanya diwakili oleh 'kelangsungan hidup'. Adapun cara untuk mencapai tujuan itu, tampaknya apa saja boleh. Darwinisme meninggalkan umat manusia tanpa kompas moral.**"
 
-> ~ _By Agus Faizal_  
-Penulis Indonesia
+> ~ _By Bruce Lipton_  
+Ahli biologi perkembangan Amerika
