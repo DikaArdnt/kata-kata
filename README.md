@@ -1,4 +1,4 @@
-"**Bagi sains, akhir dari perjuangan evolusi hanya diwakili oleh 'kelangsungan hidup'. Adapun cara untuk mencapai tujuan itu, tampaknya apa saja boleh. Darwinisme meninggalkan umat manusia tanpa kompas moral.**"
+"**Bagi Presiden Clinton, menurut diskusi yang saya lakukan dengannya, Rwanda adalah masalah marjinal.**"
 
-> ~ _By Bruce Lipton_  
-Ahli biologi perkembangan Amerika
+> ~ _By Boutros Boutros-Ghali_  
+Politisi dan diplomat Mesir
