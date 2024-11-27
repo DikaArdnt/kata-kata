@@ -1,4 +1,4 @@
-"**Ketika orang memberi tahu Anda betapa mudanya Anda, mereka memberi tahu Anda berapa usia Anda.**"
+"**Ada beberapa hal yang dapat ditemukan alasan dengan sangat pasti dan mudah seperti kekurangannya sendiri.**"
 
-> ~ _By Cary Grant_  
-Aktor dari Amerika Serikat (ns. dari Archibald Alexander Leach)
+> ~ _By Jeremy Collier_  
+Pendeta dan penulis dari Inggris
