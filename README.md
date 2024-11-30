@@ -1,4 +1,4 @@
-"**Ibunya sering berkata, Ketika Anda memilih suatu tindakan, Anda memilih konsekuensi dari tindakan itu. Dia telah menekankan akibat wajar dari aksioma ini bahkan lebih keras: ketika Anda menginginkan konsekuensi Anda sebaiknya mengambil tindakan yang akan menciptakannya.**"
+"**Jika Allah yang menjadi tujuan, kenapa harus dikalahkan oleh rintangan-rintangan yang kecil di hadapan Allah?**"
 
-> ~ _By Lois McMaster Bujold_  
-Penulis fiksi spekulatif Amerika
+> ~ _By Syeikh Imam Nawawi al-Bantani_  
+Ulama dan intelektual dari Indonesia
