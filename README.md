@@ -1,4 +1,4 @@
-"**Ada banyak orang yang membentuk keputusan, jadi jika kita ingin memprediksi dengan benar, kita harus memperhatikan semua orang yang mencoba membentuk hasilnya, bukan hanya orang-orang di puncak piramida pengambilan keputusan.**"
+"**Tidak tahu kapan fajar akan datang aku membuka setiap pintu.**"
 
-> ~ _By Bruce Bueno de Mesquita_  
-Ilmuwan politik Amerika
+> ~ _By Emily Dickinson_  
+Penyair dari Amerika Serikat
