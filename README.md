@@ -1,4 +1,4 @@
-"**Tidak tahu kapan fajar akan datang aku membuka setiap pintu.**"
+"**Ukuran seorang pria adalah keinginannya.**"
 
-> ~ _By Emily Dickinson_  
-Penyair dari Amerika Serikat
+> ~ _By Ali ibn Abi Talib_  
+Sepupu dan menantu nabi Islam Muhammad
