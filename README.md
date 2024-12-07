@@ -1,4 +1,4 @@
-"**Perempuan bergantung pada laki-laki untuk kehilangan pikiran mereka.**"
+"**Tidak ada yang lebih banyak berbicara tentang penciptanya daripada karya itu sendiri.**"
 
-> ~ _By Peter Bamm_  
-Penulis (ns. dari Curt Emmrich) dari Jerman
+> ~ _By Akira Kurosawa_  
+Sutradara film, produser dan penulis skenario ternama dari Jepang
