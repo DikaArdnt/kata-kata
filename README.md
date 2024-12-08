@@ -1,4 +1,4 @@
-"**Tidak ada yang lebih banyak berbicara tentang penciptanya daripada karya itu sendiri.**"
+"**Tuhan selalu memberi yang manusia butuhkan, bukan yang manusia inginkan.**"
 
-> ~ _By Akira Kurosawa_  
-Sutradara film, produser dan penulis skenario ternama dari Jepang
+> ~ _By Angelique Puspadewi_  
+The Rising Star
