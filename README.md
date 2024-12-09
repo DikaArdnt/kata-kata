@@ -1,4 +1,4 @@
-"**Tuhan selalu memberi yang manusia butuhkan, bukan yang manusia inginkan.**"
+"**Sulit menjadi yang pertama. Seolah-olah saya tunduk pada tingkat pemeriksaan yang berbeda.**"
 
-> ~ _By Angelique Puspadewi_  
-The Rising Star
+> ~ _By Carol Moseley Braun_  
+Diplomat, politisi, dan pengacara Amerika
