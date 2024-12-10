@@ -1,4 +1,4 @@
-"**Sulit menjadi yang pertama. Seolah-olah saya tunduk pada tingkat pemeriksaan yang berbeda.**"
+"**Ketika Anda jatuh cinta, kebahagiaan akan membuat Anda sulit tertidur karena kenyataan lebih baik dibandingkan mimpi Anda.**"
 
-> ~ _By Carol Moseley Braun_  
-Diplomat, politisi, dan pengacara Amerika
+> ~ _By Dr. Seuss_  
+Penulis dari Amerika Serikat (ns. dari Theodor Seuss Geisel)
