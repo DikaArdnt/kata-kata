@@ -1,4 +1,4 @@
-"**Ketika Anda jatuh cinta, kebahagiaan akan membuat Anda sulit tertidur karena kenyataan lebih baik dibandingkan mimpi Anda.**"
+"**Sebagai mahasiswa yang ingin punya banyak teman, gue selalu berusaha membagi waktu agar tetap bisa jalan-jalan, tetapi nilai-nilai kuliah bagus. Tantangan lainnya, gue agak kesulitan menangkap penjelasan dosen dalam bahasa Italia.**"
 
-> ~ _By Dr. Seuss_  
-Penulis dari Amerika Serikat (ns. dari Theodor Seuss Geisel)
+> ~ _By Ahmad Fuadi_  
+Penulis dari Indonesia
