@@ -1,4 +1,4 @@
-"**Sebagai mahasiswa yang ingin punya banyak teman, gue selalu berusaha membagi waktu agar tetap bisa jalan-jalan, tetapi nilai-nilai kuliah bagus. Tantangan lainnya, gue agak kesulitan menangkap penjelasan dosen dalam bahasa Italia.**"
+"**Kita hidup bersama, jadi kita harus mati bersama.**"
 
-> ~ _By Ahmad Fuadi_  
-Penulis dari Indonesia
+> ~ _By Bianca Turetsky_  
+The Time-Traveling Fashionista: on Board The Titanic
