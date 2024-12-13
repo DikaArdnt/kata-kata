@@ -1,4 +1,4 @@
-"**Kita hidup bersama, jadi kita harus mati bersama.**"
+"**Lihat bara api di dalam, sambil mengucapkan mantra sederhana: saya memilih untuk bahagia.**"
 
-> ~ _By Bianca Turetsky_  
-The Time-Traveling Fashionista: on Board The Titanic
+> ~ _By Gede Prama_  
+Penulis, pembicara dan motivator dari Indonesia
