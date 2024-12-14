@@ -1,4 +1,4 @@
-"**Lihat bara api di dalam, sambil mengucapkan mantra sederhana: saya memilih untuk bahagia.**"
+"**Kecurigaan lebih merupakan kebajikan daripada kesalahan, selama itu seperti anjing yang mengawasi, dan tidak menggigit.**"
 
-> ~ _By Gede Prama_  
-Penulis, pembicara dan motivator dari Indonesia
+> ~ _By Lord Halifax_  
+Politikus dari Britania Raya
