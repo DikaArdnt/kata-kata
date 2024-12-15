@@ -1,4 +1,4 @@
-"**Kecurigaan lebih merupakan kebajikan daripada kesalahan, selama itu seperti anjing yang mengawasi, dan tidak menggigit.**"
+"**Sukses adalah perjalanan bukan tujuan. Melakukannya seringkali lebih penting daripada hasilnya.**"
 
-> ~ _By Lord Halifax_  
-Politikus dari Britania Raya
+> ~ _By Arthur Ashe_  
+Pemain tenis dari Amerika Serikat
