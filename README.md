@@ -1,4 +1,4 @@
-"**Sukses adalah perjalanan bukan tujuan. Melakukannya seringkali lebih penting daripada hasilnya.**"
+"**Kita jangan menghina orang lain. Dibandingkan kotor lebih suka kebersihan, kan.**"
 
-> ~ _By Arthur Ashe_  
-Pemain tenis dari Amerika Serikat
+> ~ _By Yu Hyun Suk_  
+Penulis dari Korea
