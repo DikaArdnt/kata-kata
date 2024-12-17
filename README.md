@@ -1,4 +1,4 @@
-"**Kita jangan menghina orang lain. Dibandingkan kotor lebih suka kebersihan, kan.**"
+"**Karena kalau cewek sudah sayang, semuanya pasti di perjuangkan.**"
 
-> ~ _By Yu Hyun Suk_  
-Penulis dari Korea
+> ~ _By Wulanfadi_  
+Penulis dari Indonesia
