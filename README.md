@@ -1,4 +1,4 @@
-"**Karena kalau cewek sudah sayang, semuanya pasti di perjuangkan.**"
+"**Setiap pajak atau tarif, yang diambil secara paksa dari orang yang tidak mau, adalah tidak bermoral dan menindas.**"
 
-> ~ _By Wulanfadi_  
-Penulis dari Indonesia
+> ~ _By Auberon Herbert_  
+Penulis Inggris, ahli teori, filsuf
