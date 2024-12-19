@@ -1,4 +1,4 @@
-"**Setiap pajak atau tarif, yang diambil secara paksa dari orang yang tidak mau, adalah tidak bermoral dan menindas.**"
+"**Dunia ini tidak sempurna atau perlahan-lahan berkembang sepanjang jalan menuju kesempurnaan. Tidak, itu sempurna setiap saat, setiap dosa sudah membawa kasih karunia di dalamnya.**"
 
-> ~ _By Auberon Herbert_  
-Penulis Inggris, ahli teori, filsuf
+> ~ _By Hermann Hesse_  
+Penulis, penyair dan Peraih Nobel sastra (1946) Jerman-Swiss
