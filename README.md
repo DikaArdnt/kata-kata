@@ -1,4 +1,4 @@
-"**Kebahagiaan yang berlebihan adalah penarik kedukaan.**"
+"**Bagaimanapun mereka adalah kaum kapitalis bisnis, segala sesuatu dihitung untung ruginya.**"
 
-> ~ _By Randu_  
+> ~ _By Ary Yulistiana_  
 Penulis dari Indonesia
