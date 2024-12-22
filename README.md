@@ -1,4 +1,4 @@
-"**Bagaimanapun mereka adalah kaum kapitalis bisnis, segala sesuatu dihitung untung ruginya.**"
+"**Perang adalah barbarisme terbaiknya.**"
 
-> ~ _By Ary Yulistiana_  
-Penulis dari Indonesia
+> ~ _By William Tecumseh Sherman_  
+Jenderal, pengusaha dan penulis dari Amerika Serikat
