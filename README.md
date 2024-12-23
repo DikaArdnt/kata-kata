@@ -1,4 +1,4 @@
-"**Perang adalah barbarisme terbaiknya.**"
+"**Teori saya dalam apa pun yang Anda lakukan adalah terus mengeksplorasi, terus menggali lebih dalam untuk menemukan hal baru.**"
 
-> ~ _By William Tecumseh Sherman_  
-Jenderal, pengusaha dan penulis dari Amerika Serikat
+> ~ _By Blythe Danner_  
+Aktris Amerika
