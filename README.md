@@ -1,4 +1,4 @@
-"**Teori saya dalam apa pun yang Anda lakukan adalah terus mengeksplorasi, terus menggali lebih dalam untuk menemukan hal baru.**"
+"**Cinta dan keajaiban memiliki persamaan besar. Keduanya memperkaya jiwa dan mencerahkan hati.**"
 
-> ~ _By Blythe Danner_  
-Aktris Amerika
+> ~ _By Nora Robert_  
+Penulis dari Amerika Serikat
