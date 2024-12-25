@@ -1,4 +1,4 @@
-"**Cinta dan keajaiban memiliki persamaan besar. Keduanya memperkaya jiwa dan mencerahkan hati.**"
+"**Komputer, seperti mobil dan pesawat terbang, hanya melakukan apa yang diperintahkan orang.**"
 
-> ~ _By Nora Robert_  
-Penulis dari Amerika Serikat
+> ~ _By Bill James_  
+Penulis bisbol Amerika, sejarawan, dan ahli statistik
