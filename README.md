@@ -1,4 +1,4 @@
-"**Komputer, seperti mobil dan pesawat terbang, hanya melakukan apa yang diperintahkan orang.**"
+"**Anda tidak marah dengan orang lain ketika Anda menertawakan mereka. Humor mengajarkan toleransi.**"
 
-> ~ _By Bill James_  
-Penulis bisbol Amerika, sejarawan, dan ahli statistik
+> ~ _By William Somerset Maugham_  
+Penulis dari Inggris
