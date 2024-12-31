@@ -16,7 +16,7 @@ jobs:
          - name: Fetch random quote from API
            id: fetch_quote
            run: |
-              response=$(curl -s https://dikaardnt.com/api/random/quotes)
+              response=$(curl -s https://api.dikaardnt.com/random/quotes)
               echo "::set-output name=content::$(jq -r '.content' <<< "$response")"
               echo "::set-output name=character::$(jq -r '.character' <<< "$response")"
               echo "::set-output name=status::$(jq -r '.status' <<< "$response")"
