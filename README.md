@@ -1,4 +1,4 @@
-"**Bukannya kehidupan ini juga pahit? Masa kita masih takut pahit?**"
+"**Kematian adalah yang terakhir dalam waktu tetapi sekaligus yang awal dari kekalahan.**"
 
-> ~ _By Brahmanto Anindito_  
-Rahasia Sunyi
+> ~ _By Mohammad Hatta_  
+Pejuang, negarawan, ekonom, dan juga Wakil Presiden Indonesia
