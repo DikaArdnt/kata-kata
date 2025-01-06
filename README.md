@@ -1,4 +1,4 @@
-"**Kematian adalah yang terakhir dalam waktu tetapi sekaligus yang awal dari kekalahan.**"
+"**Adalah hal yang sia-sia untuk selalu melihat ke masa depan namun tidak pernah melakukan sesuatu untuk ke arah itu.**"
 
-> ~ _By Mohammad Hatta_  
-Pejuang, negarawan, ekonom, dan juga Wakil Presiden Indonesia
+> ~ _By John Frederick Boyes_  
+Ahli klasik dari Inggris
