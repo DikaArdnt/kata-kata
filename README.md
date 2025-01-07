@@ -1,4 +1,4 @@
-"**Adalah hal yang sia-sia untuk selalu melihat ke masa depan namun tidak pernah melakukan sesuatu untuk ke arah itu.**"
+"**Teori kuantum tidak lagi memungkinkan deskripsi alam yang sepenuhnya obyektif.**"
 
-> ~ _By John Frederick Boyes_  
-Ahli klasik dari Inggris
+> ~ _By Werner Heisenberg_  
+Fisikawan, pendiri mekanika kuantum dari Jerman
