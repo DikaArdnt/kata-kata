@@ -1,4 +1,4 @@
-"**Terlalu banyak lalu lintas dengan buku kutipan menimbulkan keyakinan ketidaktahuan pada pembaca yang sensitif. Tidak hanya ada banyak hal yang dapat dikutip yang tidak pernah dia kutip, tetapi juga ranah yang lebih luas yang belum pernah dia dengar.**"
+"**''Saya'' adalah kecenderungan sosial yang militan, bekerja untuk mempertahankan dan memperbesar tempatnya dalam arus umum kecenderungan. Sejauh yang bisa dia lakukan, seperti semua kehidupan. Memikirkannya sebagai sesuatu yang terpisah dari masyarakat adalah absurditas yang gamblang dan tidak ada orang yang bersalah yang benar-benar melihatnya sebagai fakta kehidupan.**"
 
-> ~ _By Robertson Davies_  
-Penulis dan wartawan dari Kanada
+> ~ _By Charles Horton Cooley_  
+
