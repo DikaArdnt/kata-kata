@@ -1,4 +1,4 @@
-"**Masalah dengan memenuhi ambisi Anda adalah Anda pikir Anda akan diubah menjadi semacam malaikat agung dan Anda tidak. Anda masih harus mencuci kaus kaki Anda.**"
+"**Memaafkan itu gampang. Melupakan tidak bisa. Tdk usah basi basi minta maaf atas kepura-puraan.**"
 
-> ~ _By Louis Bernieres_  
-
+> ~ _By Nusron Wahid_  
+Politikus dari Indonesia
