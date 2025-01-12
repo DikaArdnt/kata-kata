@@ -1,4 +1,4 @@
-"**Memaafkan itu gampang. Melupakan tidak bisa. Tdk usah basi basi minta maaf atas kepura-puraan.**"
+"**Dengan sajak kudedahkan cinta; bunga pada angin yang menyerbukkan putiknya.**"
 
-> ~ _By Nusron Wahid_  
-Politikus dari Indonesia
+> ~ _By Jamal T. Suryanata_  
+Penulis dari Indonesia
