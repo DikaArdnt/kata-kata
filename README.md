@@ -1,4 +1,4 @@
-"**Saat aku berdiri di depan Tuhan di akhir hidupku, akub erharap aku tidak memiliki satu talenta yang tak terpakai, dan bisa berkata, "Aku telah menggunakan semua yang Kau berikan padaku".**"
+"**Jika dari semua kata-kata lidah dan pena, Yang paling menyedihkan adalah, Mungkin saja, Yang lebih menyedihkan adalah yang kita lihat setiap hari, Memang, tapi seharusnya tidak demikian.**"
 
-> ~ _By Erma Bombeck_  
-Penulis dari Amerika Serikat
+> ~ _By Bret Harte_  
+Penulis cerita pendek dan penyair Amerika
