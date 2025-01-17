@@ -1,4 +1,4 @@
-"**Jika dari semua kata-kata lidah dan pena, Yang paling menyedihkan adalah, Mungkin saja, Yang lebih menyedihkan adalah yang kita lihat setiap hari, Memang, tapi seharusnya tidak demikian.**"
+"**Yang baik kita amankan bagi diri kita sendiri adalah tidak pasti dan tidak pasti sampai itu dijamin bagi kita semua dan dimasukkan ke dalam kehidupan bersama kita.**"
 
-> ~ _By Bret Harte_  
-Penulis cerita pendek dan penyair Amerika
+> ~ _By Joey Adams_  
+Kolumnis dan humoris dari Amerika Serikat
