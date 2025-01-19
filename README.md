@@ -1,4 +1,4 @@
-"**Selain bertindak bodoh, cinta juga bisa membuatmu jadi tak rasional!**"
+"**Terkadang cara terbaik dan satu-satunya yang efektif untuk membunuh sebuah ide adalah dengan mempraktikkannya.**"
 
-> ~ _By Dyah Prameswarie_  
-Penulis dari Indonesia
+> ~ _By Sidney J. Harris_  
+Jurnalis dari Amerika
