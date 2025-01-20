@@ -1,4 +1,4 @@
-"**Terkadang cara terbaik dan satu-satunya yang efektif untuk membunuh sebuah ide adalah dengan mempraktikkannya.**"
+"**Komedi itu sesuatu yang serius!**"
 
-> ~ _By Sidney J. Harris_  
-Jurnalis dari Amerika
+> ~ _By Indro Warkop_  
+Aktor dari Indonesia (n.l.: Indrodjojo Kusumonegoro)
