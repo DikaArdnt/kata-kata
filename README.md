@@ -1,4 +1,4 @@
-"**Komedi itu sesuatu yang serius!**"
+"**Di dunia bebas, sayangnya, ada lebih banyak kejahatan daripada di sistem diktator.**"
 
-> ~ _By Indro Warkop_  
-Aktor dari Indonesia (n.l.: Indrodjojo Kusumonegoro)
+> ~ _By Barbara Amiel_  
+Jurnalis, penulis, dan sosialita Inggris
