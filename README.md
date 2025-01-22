@@ -1,4 +1,4 @@
-"**Di dunia bebas, sayangnya, ada lebih banyak kejahatan daripada di sistem diktator.**"
+"**Kau bisa membayangkan redupnya.**"
 
-> ~ _By Barbara Amiel_  
-Jurnalis, penulis, dan sosialita Inggris
+> ~ _By Marliana Kuswanti_  
+Penulis dari Indonesia
