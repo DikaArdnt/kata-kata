@@ -1,4 +1,4 @@
-"**Orang yang masih belajar itu mesti banyak salahnya, kok.**"
+"**Kami menghormati alasan, namun kami mencintai hasrat kami.**"
 
-> ~ _By Vanny Chrisma W._  
-Miss Hola Holic
+> ~ _By Alain_  
+Filsuf dan eseis (ns. dari Émile Augiste Chartier) dari Perancis
