@@ -1,4 +1,4 @@
-"**Orang-orang di Jerman Timur telah mengalami begitu banyak perubahan dalam 15 tahun terakhir tidak seperti sebelumnya di negara ini, dan mereka sering melakukannya dengan sangat antusias. Tetapi di Barat kami juga mengalami transformasi tingkat tinggi.**"
+"**Presiden Obama mungkin adalah presiden yang paling bermotivasi ideologis dalam sejarah Amerika. Namun menurut otoritas tertinggi, Barack Obama, dia hanyalah seorang pragmatis.**"
 
-> ~ _By Angela Merkel_  
-Politisi dan kanselir Jerman
+> ~ _By Ben Shapiro_  
+Komentator dan pengacara politik konservatif Amerika
