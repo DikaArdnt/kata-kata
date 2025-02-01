@@ -1,4 +1,4 @@
-"**Presiden Obama mungkin adalah presiden yang paling bermotivasi ideologis dalam sejarah Amerika. Namun menurut otoritas tertinggi, Barack Obama, dia hanyalah seorang pragmatis.**"
+"**Dia begitu teduh, menenangkan jiwaku yang selama ini dirundung lara.**"
 
-> ~ _By Ben Shapiro_  
-Komentator dan pengacara politik konservatif Amerika
+> ~ _By Atika Puspita_  
+Endless Dilemma
