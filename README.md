@@ -1,4 +1,4 @@
-"**Dia begitu teduh, menenangkan jiwaku yang selama ini dirundung lara.**"
+"**Pendidikan adalah satu hal dan instruksi, betapapun berharga, perlu dan secara kebetulan atau secara moneter mendidik, adalah hal lain.**"
 
-> ~ _By Atika Puspita_  
-Endless Dilemma
+> ~ _By Kingsley Amis_  
+Penulis dari Inggris
