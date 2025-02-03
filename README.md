@@ -1,4 +1,4 @@
-"**Pendidikan adalah satu hal dan instruksi, betapapun berharga, perlu dan secara kebetulan atau secara moneter mendidik, adalah hal lain.**"
+"**Tidak ada yang dapat menambah lebih banyak kekuatan dalam hidup Anda selain memusatkan semua energi Anda pada target yang terbatas.**"
 
-> ~ _By Kingsley Amis_  
-Penulis dari Inggris
+> ~ _By Nido Qubein_  
+Pengusaha dan pembicara dari Amerika Serikat / Lebanon
