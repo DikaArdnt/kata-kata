@@ -1,4 +1,4 @@
-"**Gaun itu ternyata berbentuk A-line berlengan panjang dengan kerah tinggi, dan ekor yang juga panjang. Bahannya yang lembut disulami renda mawar yang sangat halus di seluruh permukaannya. Keseluruhan desain gaun itu memberikan kesan vintage, sekaligus romantis.**"
+"**Hati mungkin berpikir itu lebih baik: indera tahu bahwa ketidakhadiran menghapuskan orang. Kami benar-benar tidak punya teman. Teman itu menjadi pengkhianat dengan menghancurkan, betapapun tidak rela atau sedih, keluar dari zona kita sendiri: hukuman keras diberikan padanya, untuk semua keinginan hati.**"
 
-> ~ _By Orizuka_  
-Penulis dari Indonesia
+> ~ _By Elizabeth Bowen_  
+Penulis dari Irlandia
