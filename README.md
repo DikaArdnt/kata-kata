@@ -1,4 +1,4 @@
-"**Hati mungkin berpikir itu lebih baik: indera tahu bahwa ketidakhadiran menghapuskan orang. Kami benar-benar tidak punya teman. Teman itu menjadi pengkhianat dengan menghancurkan, betapapun tidak rela atau sedih, keluar dari zona kita sendiri: hukuman keras diberikan padanya, untuk semua keinginan hati.**"
+"**Semua orang, tidak peduli berapa pun usia Anda, sekitar 24, 25 tahun ada di hati mereka.**"
 
-> ~ _By Elizabeth Bowen_  
-Penulis dari Irlandia
+> ~ _By Bruce Willis_  
+Aktor Amerika
