@@ -1,4 +1,4 @@
-"**Semua orang, tidak peduli berapa pun usia Anda, sekitar 24, 25 tahun ada di hati mereka.**"
+"**Aku ingin sibuk sesibuk-sibuknya untuk sukses sesukses-suksesnya. Agar kau percaya penyesalan bisa datang bersamaan dengan perpisahan.**"
 
-> ~ _By Bruce Willis_  
-Aktor Amerika
+> ~ _By Wira Nagara_  
+Komika dari Indonesia
