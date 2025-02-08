@@ -1,4 +1,4 @@
-"**Aku ingin sibuk sesibuk-sibuknya untuk sukses sesukses-suksesnya. Agar kau percaya penyesalan bisa datang bersamaan dengan perpisahan.**"
+"**Apa gunanya sayap bagi seseorang yang terikat di rantai besi?**"
 
-> ~ _By Wira Nagara_  
-Komika dari Indonesia
+> ~ _By Adelbert von Chamisso_  
+Penulis dan ahli ilmu hewan dari Jerman
