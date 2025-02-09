@@ -1,4 +1,4 @@
-"**Apa gunanya sayap bagi seseorang yang terikat di rantai besi?**"
+"**Jika ada sesuatu yang memiliki penjelasan, Anda bisa menjelaskannya. Jika tidak ada penjelasannya, Anda harus menjelaskan mengapa Anda tidak bisa menjelaskannya.**"
 
-> ~ _By Adelbert von Chamisso_  
-Penulis dan ahli ilmu hewan dari Jerman
+> ~ _By Carlos Gershenson_  
+Penulis dan akademisi Meksiko
