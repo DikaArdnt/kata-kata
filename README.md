@@ -1,4 +1,4 @@
-"**Tidak setiap kebenaran lebih baik untuk menunjukkan wajahnya secara tidak tersamar; dan seringkali diam adalah hal yang paling bijaksana untuk diperhatikan oleh seorang pria.**"
+"**Presiden bukan hanya pemimpin partai, ia adalah Presiden seluruh rakyat. Dia harus menafsirkan hati nurani Amerika.**"
 
-> ~ _By Pindar_  
-Penyair lirik Yunani kuno dari Thebes
+> ~ _By Herbert Hoover_  
+Presiden (ke-31) dari Amerika Serikat
