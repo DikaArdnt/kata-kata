@@ -1,4 +1,4 @@
-"**Presiden bukan hanya pemimpin partai, ia adalah Presiden seluruh rakyat. Dia harus menafsirkan hati nurani Amerika.**"
+"**Jangan salah sangka, Va. Kita ini sayang sama lo. Kita nggak mau lo lihat lo menaruh harapan muluk-muluk pada orang yang bahkan nggak lo kenal secara realistis. Kita udah males lihat lo kepincut sama cowok yang mirip si anu atau profesinya sama kayak si itu.**"
 
-> ~ _By Herbert Hoover_  
-Presiden (ke-31) dari Amerika Serikat
+> ~ _By Shita Hapsari_  
+Penulis dari Indonesia
