@@ -1,4 +1,4 @@
-"**Jangan salah sangka, Va. Kita ini sayang sama lo. Kita nggak mau lo lihat lo menaruh harapan muluk-muluk pada orang yang bahkan nggak lo kenal secara realistis. Kita udah males lihat lo kepincut sama cowok yang mirip si anu atau profesinya sama kayak si itu.**"
+"**Orang-orang India itu berbadan tegap dan merasa bangga dan gembira karena mereka telah dijadikan tentara Amerika Serikat.**"
 
-> ~ _By Shita Hapsari_  
-Penulis dari Indonesia
+> ~ _By Buffalo Bill_  
+Tentara Amerika, pemburu bison, dan pemain sandiwara
