@@ -1,4 +1,4 @@
-"**Manusia adalah apa yang diyakininya.**"
+"**Saya takut jika Anda melihat sesuatu cukup lama, maka sesuatu itu akan kehilangan semua maknanya.**"
 
-> ~ _By Anton Chekhov_  
-Penulis dari Rusia
+> ~ _By Andy Warhol_  
+Artis dari Amerika Serikat
