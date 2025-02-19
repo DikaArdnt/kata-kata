@@ -1,4 +1,4 @@
-"**Saya takut jika Anda melihat sesuatu cukup lama, maka sesuatu itu akan kehilangan semua maknanya.**"
+"**Semakin banyak tahu semakin mudah orang menjadi takut. Saya pikir rasa takut memang harus ada, karena inilah yang akan membuat saya bersikap hati-hati.**"
 
-> ~ _By Andy Warhol_  
-Artis dari Amerika Serikat
+> ~ _By Norman Edwin_  
+Wartawan Kompas dan pecinta alam
