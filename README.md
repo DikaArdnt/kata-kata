@@ -1,4 +1,4 @@
-"**Semakin banyak tahu semakin mudah orang menjadi takut. Saya pikir rasa takut memang harus ada, karena inilah yang akan membuat saya bersikap hati-hati.**"
+"**Di mana pun ada kebenaran obyektif, di situ ada sindiran.**"
 
-> ~ _By Norman Edwin_  
-Wartawan Kompas dan pecinta alam
+> ~ _By Wyndham Lewis_  
+Pelukis dan penulis dari Britania Raya
