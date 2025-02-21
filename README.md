@@ -1,4 +1,4 @@
-"**Di mana pun ada kebenaran obyektif, di situ ada sindiran.**"
+"**Pria merindukan akhirat di mana tampaknya tidak ada yang bisa dilakukan selain kegembiraan dalam keajaiban surga.**"
 
-> ~ _By Wyndham Lewis_  
-Pelukis dan penulis dari Britania Raya
+> ~ _By Louis D. Brandeis_  
+Pengacara Amerika dan rekanan keadilan di Mahkamah Agung
