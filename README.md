@@ -1,4 +1,4 @@
-"**Pria merindukan akhirat di mana tampaknya tidak ada yang bisa dilakukan selain kegembiraan dalam keajaiban surga.**"
+"**Demi Allah yang jiwaku berada di tangan-Nya, seseorang tidak beriman hingga ia mencintai saudaranya sebagaimana ia mencintai dirinya sendiri.**"
 
-> ~ _By Louis D. Brandeis_  
-Pengacara Amerika dan rekanan keadilan di Mahkamah Agung
+> ~ _By Nabi Muhammad SAW_  
+Nabi dan rasul terakhir umat muslim
