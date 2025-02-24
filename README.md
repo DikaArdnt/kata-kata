@@ -1,4 +1,4 @@
-"**Dengan menyusutnya ekonomi AS, dan menyusut dengan sangat cepat, Anda tidak hanya memiliki lebih banyak uang, tetapi Anda juga memiliki lebih sedikit barang. Itu adalah pukulan ganda klasik pada inflasi.**"
+"**Setiap kali ada orang yang menantang sesuatu, kekuatan yang mencoba menggambarkan mereka sebagai ekstremis atau radikal atau apapun. Dan saya pikir itu sebenarnya tidak masuk akal.**"
 
-> ~ _By Arthur Laffer_  
-Ekonom dan penulis Amerika
+> ~ _By Bill McKibben_  
+Ahli lingkungan hidup Amerika, penulis, dan jurnalis
