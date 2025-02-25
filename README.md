@@ -1,4 +1,4 @@
-"**Setiap kali ada orang yang menantang sesuatu, kekuatan yang mencoba menggambarkan mereka sebagai ekstremis atau radikal atau apapun. Dan saya pikir itu sebenarnya tidak masuk akal.**"
+"**Kedamaian hidup yang sesungguhnya bukan diraih saat seseorang memiliki harta kekayaan yang melimpah, namun saat dia memiliki nilai guna dan manfaat untuk orang lain.**"
 
-> ~ _By Bill McKibben_  
-Ahli lingkungan hidup Amerika, penulis, dan jurnalis
+> ~ _By Suryatna Pamungkas_  
+Backpack Love
