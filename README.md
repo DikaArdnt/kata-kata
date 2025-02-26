@@ -1,4 +1,4 @@
-"**Kedamaian hidup yang sesungguhnya bukan diraih saat seseorang memiliki harta kekayaan yang melimpah, namun saat dia memiliki nilai guna dan manfaat untuk orang lain.**"
+"**Pengusaha perlu bersikap realistis. Jadi, ketika Anda menulis rencana bisnis Anda, jika sejak awal Anda percaya bahwa ada kemungkinan 70 persen rencana Anda gagal, hal itu akan meringankan beban Anda.**"
 
-> ~ _By Suryatna Pamungkas_  
-Backpack Love
+> ~ _By Jeff Bezos_  
+Pengusaha (pendiri Amazon) dari Amerika Serikat
