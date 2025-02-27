@@ -1,4 +1,4 @@
-"**Pengusaha perlu bersikap realistis. Jadi, ketika Anda menulis rencana bisnis Anda, jika sejak awal Anda percaya bahwa ada kemungkinan 70 persen rencana Anda gagal, hal itu akan meringankan beban Anda.**"
+"**Orang yang tidak diberi kesempatan untuk mengambil keputusan penting mulai menganggap penting keputusan yang boleh diambilnya.**"
 
-> ~ _By Jeff Bezos_  
-Pengusaha (pendiri Amazon) dari Amerika Serikat
+> ~ _By C. Northcote Parkinson_  
+Sejarawan dan penulis angkatan laut Inggris
