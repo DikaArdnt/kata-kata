@@ -1,4 +1,4 @@
-"**Orang yang tidak diberi kesempatan untuk mengambil keputusan penting mulai menganggap penting keputusan yang boleh diambilnya.**"
+"**Minum! karena kamu tidak tahu dari mana kamu datang atau mengapa: minum! karena Anda tidak tahu mengapa Anda pergi, atau ke mana.**"
 
-> ~ _By C. Northcote Parkinson_  
-Sejarawan dan penulis angkatan laut Inggris
+> ~ _By Omar Khayyam_  
+Ahli astronomi, penyair dari Persia
