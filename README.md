@@ -1,4 +1,4 @@
-"**Minum! karena kamu tidak tahu dari mana kamu datang atau mengapa: minum! karena Anda tidak tahu mengapa Anda pergi, atau ke mana.**"
+"**Saya selalu merasa bodoh untuk mendapatkan ilmu sebanyak-banyaknya.**"
 
-> ~ _By Omar Khayyam_  
-Ahli astronomi, penyair dari Persia
+> ~ _By Didik Nini Thowok_  
+
