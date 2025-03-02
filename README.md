@@ -1,4 +1,4 @@
-"**Saya selalu merasa bodoh untuk mendapatkan ilmu sebanyak-banyaknya.**"
+"**Wanita kalau ada maunya lebih buas.**"
 
-> ~ _By Didik Nini Thowok_  
-
+> ~ _By Sari Agustia_  
+Penulis dari Indonesia
