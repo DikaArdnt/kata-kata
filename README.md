@@ -1,4 +1,4 @@
-"**Wanita kalau ada maunya lebih buas.**"
+"**Bawalah ide dan hibur mereka secara meriah, karena salah satu dari mereka mungkin adalah raja.**"
 
-> ~ _By Sari Agustia_  
-Penulis dari Indonesia
+> ~ _By Mark van Doren_  
+Penyair dan literer dari Amerika Serikat
