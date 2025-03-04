@@ -1,4 +1,4 @@
-"**Bawalah ide dan hibur mereka secara meriah, karena salah satu dari mereka mungkin adalah raja.**"
+"**Tak ada obat sehebat harapan dan tak ada tonikum sekuat pengharapan akan masa mendatang.**"
 
-> ~ _By Mark van Doren_  
-Penyair dan literer dari Amerika Serikat
+> ~ _By Swett Orison Marden_  
+
