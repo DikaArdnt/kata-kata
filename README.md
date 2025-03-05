@@ -1,4 +1,4 @@
-"**Tak ada obat sehebat harapan dan tak ada tonikum sekuat pengharapan akan masa mendatang.**"
+"**Hidup adalah ziarah. Orang bijak tidak beristirahat di penginapan pinggir jalan. Dia berbaris langsung ke ranah kebahagiaan abadi yang tak terbatas, yaitu tujuan utamanya.**"
 
-> ~ _By Swett Orison Marden_  
-
+> ~ _By Swami Sivananda Sarasvati_  
+Pemimpin spiritual Hindu
