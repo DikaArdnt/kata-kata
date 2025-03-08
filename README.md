@@ -1,4 +1,4 @@
-"**Ketika orang berada di tengah-tengah hal yang sangat berat dan masih memiliki rasa humor, saya mengaguminya.**"
+"**Kebajikan tidak terdiri atas tidak adanya nafsu, tetapi ada dalam kendali mereka.**"
 
-> ~ _By Ted Danson_  
-Aktor dari Amerika
+> ~ _By Josh Billings_  
+Humoris (ns. dari Henry Wheeler Shaw) dari Amerika Serikat
