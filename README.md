@@ -1,4 +1,4 @@
-"**Saya tahu sepanjang waktu saya akan melewati perang. Benar-benar tidak rasional, ide yang konyol, tetapi saya tidak akan berbaring dan membuat diri saya terbunuh. Saya akan keluar dari situ.**"
+"**Hanya ada satu bukti dari kemampuan yaitu tindakan.**"
 
-> ~ _By Abraham Pais_  
-Fisikawan Belanda-Amerika
+> ~ _By Marie von Ebner-Eschenbach_  
+Penulis dari Austria
