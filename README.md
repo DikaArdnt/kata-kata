@@ -1,4 +1,4 @@
-"**Hanya ada satu bukti dari kemampuan yaitu tindakan.**"
+"**Bangsa yang mengamankan kendali atas udara pada akhirnya akan mengendalikan dunia.**"
 
-> ~ _By Marie von Ebner-Eschenbach_  
-Penulis dari Austria
+> ~ _By Alexander Graham Bell_  
+Penemu Skotlandia-Amerika
