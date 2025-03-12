@@ -1,4 +1,4 @@
-"**Bangsa yang mengamankan kendali atas udara pada akhirnya akan mengendalikan dunia.**"
+"**Ada beberapa pengacara yang menganggap diri mereka pada dasarnya sebagai instrumen dari siapa pun klien mereka, dan mereka bangga dengan keahlian profesional mereka.**"
 
-> ~ _By Alexander Graham Bell_  
-Penemu Skotlandia-Amerika
+> ~ _By Cass Sunstein_  
+Sarjana hukum Amerika
