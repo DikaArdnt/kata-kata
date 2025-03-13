@@ -1,4 +1,4 @@
-"**Ada beberapa pengacara yang menganggap diri mereka pada dasarnya sebagai instrumen dari siapa pun klien mereka, dan mereka bangga dengan keahlian profesional mereka.**"
+"**Berbuat kebaikan membuatmu bahagia, tak peduli betapa sedihnya perasaanmu saat itu.**"
 
-> ~ _By Cass Sunstein_  
-Sarjana hukum Amerika
+> ~ _By Gina Gabrielle_  
+Gadis Penenun Mimpi & Pria yang Melipat Kertas Terbang
