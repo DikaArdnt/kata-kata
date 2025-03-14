@@ -1,4 +1,4 @@
-"**Berbuat kebaikan membuatmu bahagia, tak peduli betapa sedihnya perasaanmu saat itu.**"
+"**Struktur pelatihan silang Anda secara tepat dengan bergantian intensitas sesi Anda sehingga Anda bekerja, pulih, bekerja, pulih.**"
 
-> ~ _By Gina Gabrielle_  
-Gadis Penenun Mimpi & Pria yang Melipat Kertas Terbang
+> ~ _By Brett Hoebel_  
+Pelatih pribadi Amerika
