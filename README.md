@@ -1,4 +1,4 @@
-"**Struktur pelatihan silang Anda secara tepat dengan bergantian intensitas sesi Anda sehingga Anda bekerja, pulih, bekerja, pulih.**"
+"**Setiap orang harus menjadi seseorang bagi seseorang untuk menjadi siapa pun.**"
 
-> ~ _By Brett Hoebel_  
-Pelatih pribadi Amerika
+> ~ _By Malcolm S. Forbes_  
+Pengusaha Amerika
