@@ -1,4 +1,4 @@
-"**Setiap orang harus menjadi seseorang bagi seseorang untuk menjadi siapa pun.**"
+"**Sesuatu yang dijaga sejak kecil tidak akan kemana-mana sewaktu besar,**"
 
-> ~ _By Malcolm S. Forbes_  
-Pengusaha Amerika
+> ~ _By Intan Paramaditha_  
+Penulis dari Indonesia
