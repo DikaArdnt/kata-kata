@@ -1,4 +1,4 @@
-"**Sesuatu yang dijaga sejak kecil tidak akan kemana-mana sewaktu besar,**"
+"**Senjata terbaik pemerintahan dictator adalah kerahasiaan, senjata paling baik pemerintahan demokratis semestinya keterbukaan.**"
 
-> ~ _By Intan Paramaditha_  
-Penulis dari Indonesia
+> ~ _By Niels Bohr_  
+Dokter dan ahli fisika dari Denmark
