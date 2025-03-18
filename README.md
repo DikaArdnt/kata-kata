@@ -1,4 +1,4 @@
-"**Senjata terbaik pemerintahan dictator adalah kerahasiaan, senjata paling baik pemerintahan demokratis semestinya keterbukaan.**"
+"**Itu yang saya pelajari dari aktor-aktor hebat yang bekerja dengan saya. Keheningan. Itu saja dan itu yang paling sulit.**"
 
-> ~ _By Niels Bohr_  
-Dokter dan ahli fisika dari Denmark
+> ~ _By Morgan Freeman_  
+Aktor dari Amerika Serikat
