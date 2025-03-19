@@ -1,4 +1,4 @@
-"**Itu yang saya pelajari dari aktor-aktor hebat yang bekerja dengan saya. Keheningan. Itu saja dan itu yang paling sulit.**"
+"**Anda berbicara tentang nilai-nilai yang Anda miliki apakah mereka mendukung atau tidak. Begitulah cara Anda memimpin. Kenyataannya, kita semakin banyak kalah dalam pemilu.**"
 
-> ~ _By Morgan Freeman_  
-Aktor dari Amerika Serikat
+> ~ _By Artur Davis_  
+Pengacara dan politisi Amerika
