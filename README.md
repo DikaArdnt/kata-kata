@@ -1,4 +1,4 @@
-"**Anda berbicara tentang nilai-nilai yang Anda miliki apakah mereka mendukung atau tidak. Begitulah cara Anda memimpin. Kenyataannya, kita semakin banyak kalah dalam pemilu.**"
+"**Dimana ada cinta yang besar, maka di situ ada prestasi yang besar pula. Banyak pekerjaan besar dari suatu tindakan, penemuan, keberhasilan, dan kerajaan, berasal dari cinta.**"
 
-> ~ _By Artur Davis_  
-Pengacara dan politisi Amerika
+> ~ _By Jonathan Saturo_  
+Penulis buku The Power of Success
