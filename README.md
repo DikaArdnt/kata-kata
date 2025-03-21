@@ -1,4 +1,4 @@
-"**Dimana ada cinta yang besar, maka di situ ada prestasi yang besar pula. Banyak pekerjaan besar dari suatu tindakan, penemuan, keberhasilan, dan kerajaan, berasal dari cinta.**"
+"**Sekarang saya katakan saya seorang penulis buku harian dengan penjelasan saya akan menghubungi Anda kembali. Suatu saat saya bisa mencoba menulis dalam bentuk memoar.**"
 
-> ~ _By Jonathan Saturo_  
-Penulis buku The Power of Success
+> ~ _By Carrie Fisher_  
+Aktris, penulis, dan komedian Amerika
