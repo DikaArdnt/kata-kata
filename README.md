@@ -1,4 +1,4 @@
-"**Sekarang saya katakan saya seorang penulis buku harian dengan penjelasan saya akan menghubungi Anda kembali. Suatu saat saya bisa mencoba menulis dalam bentuk memoar.**"
+"**Untuk melawan rasa takut, bertindak. Untuk meningkatkan rasa takut - tunggu, tunda dulu.**"
 
-> ~ _By Carrie Fisher_  
-Aktris, penulis, dan komedian Amerika
+> ~ _By David J. Schwartz_  
+Penulis motivasi dan pelatih dari Amerika Serikat
