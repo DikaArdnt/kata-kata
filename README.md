@@ -1,4 +1,4 @@
-"**Kali ini bangsa kita sudah kaya, kita punya banyak uang, dan bisa membeli apapun yang kita butuhkan.**"
+"**Untuk semua pria akan menjadi pengecut jika mereka berani.**"
 
-> ~ _By Muhammad Jusuf Kalla_  
-Wakil Presiden Indonesia
+> ~ _By John Wilmot 2nd Earl of Rochester_  
+Penyair dari Inggris
