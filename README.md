@@ -1,4 +1,4 @@
-"**Untuk semua pria akan menjadi pengecut jika mereka berani.**"
+"**Hal yang paling menyedihkan saat mencintai seseorang bukanlah saat cinta kita bertepuk sebelah tangan, tapi ketika kita diabaikan oleh orang yang kita cintai.**"
 
-> ~ _By John Wilmot 2nd Earl of Rochester_  
-Penyair dari Inggris
+> ~ _By Stephanie Zen_  
+Penulis dari Indonesia
