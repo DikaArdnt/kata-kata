@@ -1,4 +1,4 @@
-"**Hanya sedikit sekali oranga yang bisa menentukan pilihannya sendiri.**"
+"**Untuk tumbuh dewasa dan mengetahui bahwa Anda dicintai sangatlah mencengangkan. Ini adalah sebuah hadiah besar untuk seorang anak.**"
 
-> ~ _By Naiqueen_  
-Penulis dari Indonesia
+> ~ _By Ted Danson_  
+Aktor dari Amerika
