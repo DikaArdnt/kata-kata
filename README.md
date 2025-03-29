@@ -1,4 +1,4 @@
-"**Untuk tumbuh dewasa dan mengetahui bahwa Anda dicintai sangatlah mencengangkan. Ini adalah sebuah hadiah besar untuk seorang anak.**"
+"**Mudah untuk mengajukan pertanyaan sulit. Namun sulit untuk memberikan jawaban yang mudah.**"
 
-> ~ _By Ted Danson_  
-Aktor dari Amerika
+> ~ _By Alessandro Morandotti_  
+Pedagang barang antik dan penulis dari Italia
