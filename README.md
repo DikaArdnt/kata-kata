@@ -1,4 +1,4 @@
-"**Mudah untuk mengajukan pertanyaan sulit. Namun sulit untuk memberikan jawaban yang mudah.**"
+"**Musuhnya adalah kebodohan dan kecerdasan senjatanya.**"
 
-> ~ _By Alessandro Morandotti_  
-Pedagang barang antik dan penulis dari Italia
+> ~ _By Anthony Hope_  
+Penulis dari Inggris
