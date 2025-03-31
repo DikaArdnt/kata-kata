@@ -1,4 +1,4 @@
-"**Musuhnya adalah kebodohan dan kecerdasan senjatanya.**"
+"**Kita tidak cukup hanya profesional. Kita juga harus transparan.**"
 
-> ~ _By Anthony Hope_  
-Penulis dari Inggris
+> ~ _By Otto Cornelis Kaligis_  
+Pengacara dari Indonesia
