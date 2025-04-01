@@ -1,4 +1,4 @@
-"**Kita tidak cukup hanya profesional. Kita juga harus transparan.**"
+"**Tanggung jawab keluarga, ya, dan selalu. Kebangkrutan keluarga karena aturan kejam pemerintah, tidak.**"
 
-> ~ _By Otto Cornelis Kaligis_  
-Pengacara dari Indonesia
+> ~ _By Barbara Mikulski_  
+Politisi Amerika
