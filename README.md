@@ -1,4 +1,4 @@
-"**Rutinitas bukanlah organisasi, sama seperti kelumpuhan adalah keteraturan.**"
+"**Kita mencintai karena hanya itulah satu-satunya petualangan.**"
 
-> ~ _By Arthur Helps_  
-Penulis dan dekan Inggris
+> ~ _By Nikki Giovanni_  
+Penyair, penulis, komentator, aktivis dan pendidik Amerika
