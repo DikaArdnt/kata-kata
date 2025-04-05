@@ -1,4 +1,4 @@
-"**Kita mencintai karena hanya itulah satu-satunya petualangan.**"
+"**Rasa humor yang berkembang dengan baik adalah tiang yang menambah keseimbangan pada langkah Anda saat Anda berjalan di tali kehidupan.**"
 
-> ~ _By Nikki Giovanni_  
-Penyair, penulis, komentator, aktivis dan pendidik Amerika
+> ~ _By William Arthur Ward_  
+Penulis dari Amerika Serikat
