@@ -1,4 +1,4 @@
-"**Rasa humor yang berkembang dengan baik adalah tiang yang menambah keseimbangan pada langkah Anda saat Anda berjalan di tali kehidupan.**"
+"**Pujian dan kritik pada akhirnya didasarkan pada suatu bentuk proyeksi.**"
 
-> ~ _By William Arthur Ward_  
-Penulis dari Amerika Serikat
+> ~ _By Billy Corgan_  
+Musisi, penyanyi dan penulis lagu Amerika
