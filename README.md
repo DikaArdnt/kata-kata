@@ -1,4 +1,4 @@
-"****"
+"**Tapi, karena nggak tahu apa-apa itulah, esok hari jadi sesuatu yang layak ditunggu, kan?**"
 
-> ~ _By _  
-
+> ~ _By Windhi Puspitadewi_  
+Penulis dari Indonesia
