@@ -1,4 +1,4 @@
-"**Tapi, karena nggak tahu apa-apa itulah, esok hari jadi sesuatu yang layak ditunggu, kan?**"
+"**Selalu mengatakan yang sebenarnya - itu hal termudah untuk diingat.**"
 
-> ~ _By Windhi Puspitadewi_  
-Penulis dari Indonesia
+> ~ _By David Mamet_  
+Dramawan dari Amerika Serikat
