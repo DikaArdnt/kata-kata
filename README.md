@@ -1,4 +1,4 @@
-"**Selalu mengatakan yang sebenarnya - itu hal termudah untuk diingat.**"
+"**Ada metode dalam kejahatan manusia, ia tumbuh dengan derajat.**"
 
-> ~ _By David Mamet_  
-Dramawan dari Amerika Serikat
+> ~ _By Francis Beaumont_  
+Penulis dan penyair dari Inggris
