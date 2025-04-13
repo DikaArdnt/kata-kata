@@ -1,4 +1,4 @@
-"**Ada metode dalam kejahatan manusia, ia tumbuh dengan derajat.**"
+"**Desain adalah tantangan konstan untuk menyeimbangkan kenyamanan dengan kemewahan, yang praktis dengan yang diinginkan.**"
 
-> ~ _By Francis Beaumont_  
-Penulis dan penyair dari Inggris
+> ~ _By Donna Karan_  
+Perancang Busana dari Amerika
