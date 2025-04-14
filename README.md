@@ -1,4 +1,4 @@
-"**Desain adalah tantangan konstan untuk menyeimbangkan kenyamanan dengan kemewahan, yang praktis dengan yang diinginkan.**"
+"**Bagi wirausaha sukses belajar dan bekerja bukanlah dua hal yang terpisahkan. Mereka suka belajar, tapi tidak merasa harus melakukannya di sebuah bangunan eksklusif yang diberi nama sekolah atau universitas.**"
 
-> ~ _By Donna Karan_  
-Perancang Busana dari Amerika
+> ~ _By Andreas Harefa_  
+
