@@ -1,4 +1,4 @@
-"**Para diplomat melihat dengan telinga mereka.**"
+"**Imajinasi saya adalah sebuah biara dan saya adalah rahibnya.**"
 
-> ~ _By John Osborne_  
-Dramawan dari Britania Raya
+> ~ _By John Keats_  
+Penyair dari Inggris
