@@ -1,4 +1,4 @@
-"**Imajinasi saya adalah sebuah biara dan saya adalah rahibnya.**"
+"**Berpikir adalah pekerjaan terberat, karena itulah sedikit sekali orang yang mau menggunakan otaknya.**"
 
-> ~ _By John Keats_  
-Penyair dari Inggris
+> ~ _By Henry Ford_  
+Produsen mobil dari Amerika Serikat
