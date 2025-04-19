@@ -1,4 +1,4 @@
-"**Jika seseorang keluar dari jalannya untuk mengabaikan Anda, ia tidak mengabaikan Anda, ia terobsesi oleh Anda.**"
+"**Ketika saya pergi ke neraka, saya bermaksud membawa suap: untuk melihat Anda, hadiah yang baik selalu memberi jalan bagi orang yang terburuk.**"
 
-> ~ _By Ziad K. Abdelnour_  
-Bankir investasi dan pemodal dari Amerika Serikat
+> ~ _By John Webster_  
+Dramawan dari Inggris
