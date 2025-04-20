@@ -1,4 +1,4 @@
-"**Ketika saya pergi ke neraka, saya bermaksud membawa suap: untuk melihat Anda, hadiah yang baik selalu memberi jalan bagi orang yang terburuk.**"
+"**Di masa lalu, kami berbicara tentang kemiskinan, kesengsaraan hanya di selatan. Sekarang ada banyak penderitaan, banyak keburukan yang menimbulkan korban di utara juga. Ini telah menjadi nyata: sistem global tidak dibuat untuk melayani kebaikan semua, tetapi untuk melayani perusahaan multinasional.**"
 
-> ~ _By John Webster_  
-Dramawan dari Inggris
+> ~ _By Ahmed Ben Bella_  
+Politisi Aljazair, tentara sosialis dan revolusioner
