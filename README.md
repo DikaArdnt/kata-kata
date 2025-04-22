@@ -1,4 +1,4 @@
-"**Aku selalu ingat bagaimana menjadi seseorang saat berada di sekitar mereka.**"
+"**Akulah sajak, yang tak gampang disatukan. Seseorang akan**"
 
-> ~ _By Natalie Portman_  
-Aktris dari Amerika-Serikat
+> ~ _By Muhammad Daffa_  
+Penulis dari Indonesia
