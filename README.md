@@ -1,4 +1,4 @@
-"**Akulah sajak, yang tak gampang disatukan. Seseorang akan**"
+"**Tidaklah cukup hanya mempertahankan demokrasi. Untuk mempertahankannya mungkin berarti kehilangannya; memperpanjangnya berarti memperkuatnya. Demokrasi bukanlah properti; itu adalah sebuah ide.**"
 
-> ~ _By Muhammad Daffa_  
-Penulis dari Indonesia
+> ~ _By Hubert H. Humphrey_  
+Politisi Amerika
