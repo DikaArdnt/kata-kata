@@ -1,4 +1,4 @@
-"**Tidaklah cukup hanya mempertahankan demokrasi. Untuk mempertahankannya mungkin berarti kehilangannya; memperpanjangnya berarti memperkuatnya. Demokrasi bukanlah properti; itu adalah sebuah ide.**"
+"**Untuk memimpin tetapi tetap satu ukuran, minumlah secangkir anggur.**"
 
-> ~ _By Hubert H. Humphrey_  
-Politisi Amerika
+> ~ _By Sir Walter Scott_  
+Penulis dan penyair dari Britania Raya
