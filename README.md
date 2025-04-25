@@ -1,4 +1,4 @@
-"**Untuk memimpin tetapi tetap satu ukuran, minumlah secangkir anggur.**"
+"**Hindari kerumunan ini seperti wabah. Dan jika mereka mengutip Anda, pastikan mereka mendengar Anda.**"
 
-> ~ _By Sir Walter Scott_  
-Penulis dan penyair dari Britania Raya
+> ~ _By Barbara Bush_  
+Istri dan First-lady George H. W. Bush dari Amerika Serikat
