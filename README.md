@@ -1,4 +1,4 @@
-"**Hindari kerumunan ini seperti wabah. Dan jika mereka mengutip Anda, pastikan mereka mendengar Anda.**"
+"**Percintaan itu fajar perkawinan. Perkawinan itu senja percintaan.**"
 
-> ~ _By Barbara Bush_  
-Istri dan First-lady George H. W. Bush dari Amerika Serikat
+> ~ _By John Andrew Holmes_  
+Dokter dan penulis dari Amerika Serikat
