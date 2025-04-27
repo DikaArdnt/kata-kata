@@ -1,4 +1,4 @@
-"**Percintaan itu fajar perkawinan. Perkawinan itu senja percintaan.**"
+"**Saya sangat jelek ketika saya lahir; dokter menampar ibuku.**"
 
-> ~ _By John Andrew Holmes_  
-Dokter dan penulis dari Amerika Serikat
+> ~ _By H. Youngman_  
+Komedian stand-up dari Amerika Serikat
