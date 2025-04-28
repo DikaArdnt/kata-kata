@@ -1,4 +1,4 @@
-"**Saya sangat jelek ketika saya lahir; dokter menampar ibuku.**"
+"**Tidak merasa sombong adalah kesombongan.**"
 
-> ~ _By H. Youngman_  
-Komedian stand-up dari Amerika Serikat
+> ~ _By Rebelyvo_  
+Kolumnis dari Indonesia
