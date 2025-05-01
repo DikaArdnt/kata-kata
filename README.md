@@ -1,4 +1,4 @@
-"**Jadilah dirimu sendiri, pribadi orang lain sudah ada yang memiliki.**"
+"**Saya benar-benar merasa kasihan kepada anak-anak yang tidak tertarik pada sejarah - sejarah baru-baru ini, karena itulah yang membuat kita menjadi seperti sekarang.**"
 
-> ~ _By Oscar Wilde_  
-Penulis dari Irlandia
+> ~ _By Barry Humphries_  
+Aktor, komedian dan penulis dari Australia
