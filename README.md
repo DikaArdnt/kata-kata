@@ -1,4 +1,4 @@
-"**Saya benar-benar merasa kasihan kepada anak-anak yang tidak tertarik pada sejarah - sejarah baru-baru ini, karena itulah yang membuat kita menjadi seperti sekarang.**"
+"**Lakukan apa yang Anda katakan akan Anda lakukan. Dan cobalah melakukannya sedikit lebih baik daripada yang Anda katakan.**"
 
-> ~ _By Barry Humphries_  
-Aktor, komedian dan penulis dari Australia
+> ~ _By Jimmy Dean_  
+Penyanyi, aktor, dan pengusaha country Amerika
