@@ -1,4 +1,4 @@
-"**Lakukan apa yang Anda katakan akan Anda lakukan. Dan cobalah melakukannya sedikit lebih baik daripada yang Anda katakan.**"
+"**Kami memakai baju ini dan rias wajah itu, lebih untuk wanita lain daripada untuk laki-laki. Laki-laki tidak peduli;bukan itu yang mereka ingini.**"
 
-> ~ _By Jimmy Dean_  
-Penyanyi, aktor, dan pengusaha country Amerika
+> ~ _By Sandra Bullock_  
+Aktris dari Amerika Serikat
