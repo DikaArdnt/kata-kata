@@ -1,4 +1,4 @@
-"**Kami memakai baju ini dan rias wajah itu, lebih untuk wanita lain daripada untuk laki-laki. Laki-laki tidak peduli;bukan itu yang mereka ingini.**"
+"**Nama dan wajah adalah identitas yang hanya bisa ditentukan oleh nasib. Dua hal pertama yang didapatkan seorang manusia yang lahir di dunia, dua hal pertama yang tidak bisa dipilih sesuka hati, dan dua hal pertama yang akan melekat selamanya.**"
 
-> ~ _By Sandra Bullock_  
-Aktris dari Amerika Serikat
+> ~ _By Cholida Rizkina_  
+Siwon Six
