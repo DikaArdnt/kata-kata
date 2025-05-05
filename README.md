@@ -1,4 +1,4 @@
-"**Nama dan wajah adalah identitas yang hanya bisa ditentukan oleh nasib. Dua hal pertama yang didapatkan seorang manusia yang lahir di dunia, dua hal pertama yang tidak bisa dipilih sesuka hati, dan dua hal pertama yang akan melekat selamanya.**"
+"**Anda tahu bukan bunga saya untuk membayar pokok, atau pokok saya untuk membayar bunga.**"
 
-> ~ _By Cholida Rizkina_  
-Siwon Six
+> ~ _By Richard Brinsley Sheridan_  
+Dramawan dari Irlandia
