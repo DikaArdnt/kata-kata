@@ -1,4 +1,4 @@
-"**Anda tahu bukan bunga saya untuk membayar pokok, atau pokok saya untuk membayar bunga.**"
+"**Kita memberlakukan banyak undang-undang yang membuat penjahat, dan kemudian beberapa undang - undang yang menghukum mereka.**"
 
-> ~ _By Richard Brinsley Sheridan_  
-Dramawan dari Irlandia
+> ~ _By Benjamin Tucker_  
+Anarkis dan sosialis Amerika
