@@ -1,4 +1,4 @@
-"**Kita memberlakukan banyak undang-undang yang membuat penjahat, dan kemudian beberapa undang - undang yang menghukum mereka.**"
+"**Seperti apakah cinta? Cinta mempunyai tangan untuk menolong orang lain. Cinta mempunyai kaki untuk menolong yang miskin dan membutuhkan. Cinta mempunyai mata untuk melihat penderitaan dan keinginan. Cinta mempunyai telinga untuk mendengar rintihan dan kesengsaraan. Seperti itulah cinta.**"
 
-> ~ _By Benjamin Tucker_  
-Anarkis dan sosialis Amerika
+> ~ _By Augustinus_  
+Filsuf, teolog dan ayah Gereja dari Romawi Kuno
