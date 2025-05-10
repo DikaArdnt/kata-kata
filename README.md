@@ -1,4 +1,4 @@
-"**Tareq sedang menatap tanpa berkedip ke arah cakrawala. Matahari lamat-lamat tenggelam di uufk Barat menyisakan semburat cahaya jingga kemerahan yan melindap.**"
+"**Amerika memiliki peran penting untuk dimainkan sebagai anggota komunitas dunia yang paling kuat.**"
 
-> ~ _By Bamby Cahyadi_  
-Penulis dari Indonesia
+> ~ _By Adam Schiff_  
+Pengacara dan politisi Amerika
