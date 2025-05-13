@@ -1,4 +1,4 @@
-"**Keberhasilan, tidak selalu membuktikan prestasi, seringkali lebih merupakan pilihan subjek daripada pelaksanaannya.**"
+"**Ada sekelumit persoalan, tetapi ada sebareg solusi yang jauh lebih penting untuk dijalankan.**"
 
-> ~ _By Pierre Choderlos de Laclos_  
-Jenderal dan novelis dari Perancis
+> ~ _By Anna Farida_  
+Puzzle Mimpi
