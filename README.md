@@ -1,4 +1,4 @@
-"**Semua partai politik akhirnya mati karena menelan kebohongan mereka sendiri.**"
+"**Saya harus mempelajari politik dan perang agar anak saya punya kebebasan untuk mempelajari matematika dan filsafat.**"
 
-> ~ _By John Arbuthnot_  
-Arts, ahli matematika dan penulis dari Skotlandia
+> ~ _By John Adams_  
+Presiden (ke-6) dari Amerika Serikat
