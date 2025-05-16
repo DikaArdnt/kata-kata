@@ -1,4 +1,4 @@
-"**Saya harus mempelajari politik dan perang agar anak saya punya kebebasan untuk mempelajari matematika dan filsafat.**"
+"**Hidup itu seperti analogi.**"
 
-> ~ _By John Adams_  
-Presiden (ke-6) dari Amerika Serikat
+> ~ _By Aaron Allston_  
+Perancang dan penulis game Amerika
