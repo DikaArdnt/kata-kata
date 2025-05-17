@@ -1,4 +1,4 @@
-"**Hidup itu seperti analogi.**"
+"**Jangan sekali-kali melupakan sejarah.**"
 
-> ~ _By Aaron Allston_  
-Perancang dan penulis game Amerika
+> ~ _By Soekarno_  
+Presiden pertama Indonesia
