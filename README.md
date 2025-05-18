@@ -1,4 +1,4 @@
-"**Jangan sekali-kali melupakan sejarah.**"
+"**Hanya sahabat sejati yang dapat melindungimu dari musuh abadimu.**"
 
-> ~ _By Soekarno_  
-Presiden pertama Indonesia
+> ~ _By Richelle Mead_  
+Penulis Amerika
