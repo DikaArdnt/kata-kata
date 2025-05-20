@@ -1,4 +1,4 @@
-"**Saya sedikit P.T. Barnum. Saya membuat bintang dari semua orang.**"
+"**null**"
 
-> ~ _By Donald Trump_  
-Pengusaha dari Amerika Serikat
+> ~ _By null_  
+false
