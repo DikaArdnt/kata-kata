@@ -1,4 +1,4 @@
-"**Mencintai dan menang adalah hal yang terbaik, yang terbaik berikutnya adalah mencintai dan kalah.**"
+"**Orang tua sering kali begitu sibuk dengan pengasuhan fisik anak-anak sehingga mereka kehilangan kemuliaan menjadi orang tua, seperti halnya keagungan pohon yang hilang saat menyapu daun.**"
 
-> ~ _By William Makepeace Thackeray_  
-
+> ~ _By Marcelene Cox_  
+Penulis dari Amerika Serikat
