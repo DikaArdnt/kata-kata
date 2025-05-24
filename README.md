@@ -1,4 +1,4 @@
-"**Orang tua sering kali begitu sibuk dengan pengasuhan fisik anak-anak sehingga mereka kehilangan kemuliaan menjadi orang tua, seperti halnya keagungan pohon yang hilang saat menyapu daun.**"
+"**Di sini, saat ini, aku nyata. Bukankah itu cukup untukmu, Apakah Anda selalu ingin merebut segalanya, tidak bisakah Anda menikmatinya?**"
 
-> ~ _By Marcelene Cox_  
-Penulis dari Amerika Serikat
+> ~ _By Sitta Karina_  
+Penulis dari Indonesia
