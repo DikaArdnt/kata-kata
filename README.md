@@ -1,4 +1,4 @@
-"**Di sini, saat ini, aku nyata. Bukankah itu cukup untukmu, Apakah Anda selalu ingin merebut segalanya, tidak bisakah Anda menikmatinya?**"
+"**Cinta selalu menjadi bisnis terbesar bagi saya, atau lebih tepatnya satu-satunya.**"
 
-> ~ _By Sitta Karina_  
-Penulis dari Indonesia
+> ~ _By Stendhal_  
+Penulis (ns. dari Marie Henri Beyle) dari Perancis
