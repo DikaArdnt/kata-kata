@@ -1,4 +1,4 @@
-"**Cinta selalu menjadi bisnis terbesar bagi saya, atau lebih tepatnya satu-satunya.**"
+"**Di dunia ini tidak akan ada yang abadi tinggal sebaik-baiknya kita merawat bumi ini sebagai tempat berlangsungnya kehidupan untuk kita dan orang-orang yang kita cintai.**"
 
-> ~ _By Stendhal_  
-Penulis (ns. dari Marie Henri Beyle) dari Perancis
+> ~ _By Nikensari Supriyanto_  
+Penulis dari Indonesia
