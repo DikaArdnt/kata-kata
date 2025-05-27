@@ -1,4 +1,4 @@
-"**Di dunia ini tidak akan ada yang abadi tinggal sebaik-baiknya kita merawat bumi ini sebagai tempat berlangsungnya kehidupan untuk kita dan orang-orang yang kita cintai.**"
+"**Seorang kritikus adalah pria tanpa kaki yang mengajar berlari.**"
 
-> ~ _By Nikensari Supriyanto_  
-Penulis dari Indonesia
+> ~ _By Channing Pollock_  
+Dramawan dan pengkritik dari Amerika Serikat
