@@ -1,4 +1,4 @@
-"**Seorang kritikus adalah pria tanpa kaki yang mengajar berlari.**"
+"**Jika anda melakukan sesuatu yang baik, setelah beberapa lama, tanpa anda pernah merasakannya, anda akan mulai untuk pamer. Setelah itu, anda tidak akan pernah dipandang baik lagi.**"
 
-> ~ _By Channing Pollock_  
-Dramawan dan pengkritik dari Amerika Serikat
+> ~ _By J. D. Salinger_  
+Penulis dari Amerika Serikat
