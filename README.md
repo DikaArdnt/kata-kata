@@ -1,4 +1,4 @@
-"**Jika anda melakukan sesuatu yang baik, setelah beberapa lama, tanpa anda pernah merasakannya, anda akan mulai untuk pamer. Setelah itu, anda tidak akan pernah dipandang baik lagi.**"
+"**Tidak ada yang disukai orang lebih dari satu Federal Canda cadangan.**"
 
-> ~ _By J. D. Salinger_  
-Penulis dari Amerika Serikat
+> ~ _By Adam McKay_  
+Sutradara dan produser film Amerika
