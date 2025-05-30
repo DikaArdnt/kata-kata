@@ -1,4 +1,4 @@
-"**Tidak ada yang disukai orang lebih dari satu Federal Canda cadangan.**"
+"**Saya tidak memiliki seorang terapis, jadi saya menggunakan saya sebagai terapis saya sendiri ketika saya sedang membuat musik.**"
 
-> ~ _By Adam McKay_  
-Sutradara dan produser film Amerika
+> ~ _By The Creator Tyler_  
+
