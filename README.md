@@ -1,4 +1,4 @@
-"**Saya tidak memiliki seorang terapis, jadi saya menggunakan saya sebagai terapis saya sendiri ketika saya sedang membuat musik.**"
+"**Terkadang, malah pacaran hanya membuat kita semakin bodoh dan bertingkah seperti anak kecil, yang lebih suka memakai hati daripada logika.**"
 
-> ~ _By The Creator Tyler_  
-
+> ~ _By Baro Indra_  
+Penulis dari Indonesia
