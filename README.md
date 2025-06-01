@@ -1,4 +1,4 @@
-"**Terkadang, malah pacaran hanya membuat kita semakin bodoh dan bertingkah seperti anak kecil, yang lebih suka memakai hati daripada logika.**"
+"**Laki-laki pemberontak belajar untuk menghakimi laki-laki berdasarkan diri mereka sendiri; mereka takut satu sama lain.**"
 
-> ~ _By Baro Indra_  
-Penulis dari Indonesia
+> ~ _By Mme De Staël_  
+Novelis dan penulis esai Perancis-Swiss
