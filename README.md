@@ -1,4 +1,4 @@
-"**Laki-laki pemberontak belajar untuk menghakimi laki-laki berdasarkan diri mereka sendiri; mereka takut satu sama lain.**"
+"**Wangi bunga menyebar hanya mengikuti arah angin. Tapi kebaikan seseorang menyebar ke semua arah.**"
 
-> ~ _By Mme De Staël_  
-Novelis dan penulis esai Perancis-Swiss
+> ~ _By Chanakya_  
+Guru, filsuf, ekonom, ahli hukum dan penasihat kerajaan dari India
