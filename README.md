@@ -1,4 +1,4 @@
-"**Guru yang baik untuk Anda hanyalah teman-teman yang mencintai Anda, yang menganggap Anda menarik, atau sangat penting, atau sangat lucu.**"
+"**Suatu pola memiliki integritas yang tidak tergantung pada media yang dengannya Anda menerima informasi yang ada. Masing-masing unsur kimia merupakan suatu kesatuan pola. Setiap individu adalah pola integritas. Integritas pola individu manusia adalah evolusioner dan tidak statis.**"
 
-> ~ _By Brenda Ueland_  
-Jurnalis, editor, dan guru Amerika
+> ~ _By Richard Buckminster Fuller_  
+Penemu, arsitek, dan desainer dari Amerika Serikat
