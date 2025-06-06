@@ -1,4 +1,4 @@
-"**Saya tidak berpikir untuk menjadi cantik. Apa yang saya curahkan sebagian besar waktu saya adalah menjadi sehat.**"
+"**Alasan mengapa Three Mile Island membuat dampak besar adalah karena film Jane Fonda berjudul 'The China Syndrome.'**"
 
-> ~ _By Ann Bancroft_  
-Penulis Amerika, guru, petualang
+> ~ _By Burton Richter_  
+Fisikawan Amerika
