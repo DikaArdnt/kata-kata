@@ -1,4 +1,4 @@
-"**Alasan mengapa Three Mile Island membuat dampak besar adalah karena film Jane Fonda berjudul 'The China Syndrome.'**"
+"**Prancis adalah negara di mana uang jatuh di tangan Anda dan Anda tidak bisa merobek kertas toilet.**"
 
-> ~ _By Burton Richter_  
-Fisikawan Amerika
+> ~ _By Billy Wilder_  
+Wartawan dan produsen Austria-Amerika
