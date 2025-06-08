@@ -1,4 +1,4 @@
-"**Prancis adalah negara di mana uang jatuh di tangan Anda dan Anda tidak bisa merobek kertas toilet.**"
+"**Sebuah novel kadangkala lebih jujur bertutur tentang sejarah ketimbang buku-buku teks di sekolah-sekolah resmi.**"
 
-> ~ _By Billy Wilder_  
-Wartawan dan produsen Austria-Amerika
+> ~ _By Rizki Ridyasmara_  
+Penulis dari Indonesia
