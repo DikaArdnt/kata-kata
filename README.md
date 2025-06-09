@@ -1,4 +1,4 @@
-"**Sebuah novel kadangkala lebih jujur bertutur tentang sejarah ketimbang buku-buku teks di sekolah-sekolah resmi.**"
+"**Amerika adalah wadah besar Tuhan dimana semua ras Eropa mencair dan di bentuk.**"
 
-> ~ _By Rizki Ridyasmara_  
-Penulis dari Indonesia
+> ~ _By Israel Zangwill_  
+Penulis dari Britania Raya
