@@ -1,4 +1,4 @@
-"**Amerika adalah wadah besar Tuhan dimana semua ras Eropa mencair dan di bentuk.**"
+"**Ketika seorang wanita setia, dia dikagumi; namun wanita sederhana tidak cukup sia-sia untuk ingin dikagumi.**"
 
-> ~ _By Israel Zangwill_  
-Penulis dari Britania Raya
+> ~ _By Pierre Carlet de Chamblain de Marivaux_  
+Dramawan dari Perancis
