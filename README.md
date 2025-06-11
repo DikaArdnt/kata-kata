@@ -1,4 +1,4 @@
-"**Ketika seorang wanita setia, dia dikagumi; namun wanita sederhana tidak cukup sia-sia untuk ingin dikagumi.**"
+"**Apa yang kita inginkan, bahwa kita mudah percaya.**"
 
-> ~ _By Pierre Carlet de Chamblain de Marivaux_  
-Dramawan dari Perancis
+> ~ _By Demosthenes_  
+Politikus dan pengacara dari Yunani
