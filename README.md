@@ -1,4 +1,4 @@
-"**Apa yang kita inginkan, bahwa kita mudah percaya.**"
+"**Lebih baik bergaul dengan orang-orang yang lebih baik darimu. Pilihlah teman-teman yang sikapnya lebih baik darimu dan kamu akan mengikutinya.**"
 
-> ~ _By Demosthenes_  
-Politikus dan pengacara dari Yunani
+> ~ _By Warren Buffett_  
+Investor dan pengusaha dari Amerika Serikat
