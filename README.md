@@ -1,4 +1,4 @@
-"**Lebih baik bergaul dengan orang-orang yang lebih baik darimu. Pilihlah teman-teman yang sikapnya lebih baik darimu dan kamu akan mengikutinya.**"
+"**Hidup di usia dewasa memang tidak semudah yang dibayangkan. Menjalani masa-masa memasuki dunia kerja senantiasa harus siap dengan drama karena di kurun waktu ini drama kehidupan bakal ngalahin dahsyatnya sinetron Noktah Merah Perkawinan.**"
 
-> ~ _By Warren Buffett_  
-Investor dan pengusaha dari Amerika Serikat
+> ~ _By Dan Sapar_  
+Traveler of The Month
