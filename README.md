@@ -1,4 +1,4 @@
-"**Hidup di usia dewasa memang tidak semudah yang dibayangkan. Menjalani masa-masa memasuki dunia kerja senantiasa harus siap dengan drama karena di kurun waktu ini drama kehidupan bakal ngalahin dahsyatnya sinetron Noktah Merah Perkawinan.**"
+"**Filsafat selalu membutuhkan sesuatu yang lebih, membutuhkan yang kekal, yang benar, berbeda dengan yang bahkan keberadaan yang paling utuh hanyalah momen bahagia.**"
 
-> ~ _By Dan Sapar_  
-Traveler of The Month
+> ~ _By Søren Kierkegaard_  
+
