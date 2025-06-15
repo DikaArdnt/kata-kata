@@ -1,4 +1,4 @@
-"**Filsafat selalu membutuhkan sesuatu yang lebih, membutuhkan yang kekal, yang benar, berbeda dengan yang bahkan keberadaan yang paling utuh hanyalah momen bahagia.**"
+"**Bagian terburuk dari kesuksesan adalah berusaha menemukan seseorang yang bahagia untuk Anda.**"
 
-> ~ _By Søren Kierkegaard_  
-
+> ~ _By Bette Midler_  
+Penyanyi, aktris, komedian dari Amerika Serikat
