@@ -1,4 +1,4 @@
-"**Bagian terburuk dari kesuksesan adalah berusaha menemukan seseorang yang bahagia untuk Anda.**"
+"**Mengetahui beberapa bahasa bukanlah suatu kejahatan, itu adalah kemalangan.**"
 
-> ~ _By Bette Midler_  
-Penyanyi, aktris, komedian dari Amerika Serikat
+> ~ _By Jean Paulhan_  
+Penulis, pengkritik dan penerbit dari Perancis
