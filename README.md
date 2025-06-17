@@ -1,4 +1,4 @@
-"**Mengetahui beberapa bahasa bukanlah suatu kejahatan, itu adalah kemalangan.**"
+"**Di tiap musibah yang menimpa Anda, ingatlah untuk bercermin dan bertanya tentang daya apa yang bisa Anda upayakan guna menarik pelajaran positif dari kejadian itu.**"
 
-> ~ _By Jean Paulhan_  
-Penulis, pengkritik dan penerbit dari Perancis
+> ~ _By Epictetus_  
+Filsuf dari Romawi Kuno
