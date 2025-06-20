@@ -1,4 +1,4 @@
-"**Agama diartikan dengan hubungan antara Tuhan dan manusia. Dan Islam adalah kepasrahan dan pengakuan manusia terhadap Sang Pencipta.**"
+"**Kau seorang ibu, kau tahu apa yang rasa sayang tuntut terhadap keluargamu.**"
 
-> ~ _By Feisal Abdul Rauf_  
-Imam Sufi, penulis, dan aktivis dari Kuwait  / Amerika Serikat
+> ~ _By Gregory Maguire_  
+Penulis dari Amerika
