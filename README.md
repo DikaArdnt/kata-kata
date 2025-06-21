@@ -1,4 +1,4 @@
-"**Kau seorang ibu, kau tahu apa yang rasa sayang tuntut terhadap keluargamu.**"
+"**Ada batasan sosial di mana seseorang dapat menekan kebebasan orang lain untuk mengekspresikan diri.**"
 
-> ~ _By Gregory Maguire_  
-Penulis dari Amerika
+> ~ _By Mark Zuckerberg_  
+Pendiri Facebook, pengusaha
