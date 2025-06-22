@@ -1,4 +1,4 @@
-"**Ada batasan sosial di mana seseorang dapat menekan kebebasan orang lain untuk mengekspresikan diri.**"
+"**Berpeganglah pada hidup Anda dan buatlah hal tersebut menjadi kejujuran dan keberanian.**"
 
-> ~ _By Mark Zuckerberg_  
-Pendiri Facebook, pengusaha
+> ~ _By Eiji Yoshikawa_  
+Novelis dari Jepang
