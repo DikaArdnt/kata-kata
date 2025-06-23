@@ -1,4 +1,4 @@
-"**Berpeganglah pada hidup Anda dan buatlah hal tersebut menjadi kejujuran dan keberanian.**"
+"**Saya kira definisi orang gila adalah seorang pria yang dikelilingi oleh mereka.**"
 
-> ~ _By Eiji Yoshikawa_  
-Novelis dari Jepang
+> ~ _By Ezra Pound_  
+Penyair, penterjemah dan penerbit dari Amerika Serikat
