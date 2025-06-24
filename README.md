@@ -1,4 +1,4 @@
-"**Saya kira definisi orang gila adalah seorang pria yang dikelilingi oleh mereka.**"
+"**Kebanyakan orang tidak dapat memahami bagaimana orang lain dapat membuang ingus secara berbeda dari yang mereka lakukan.**"
 
-> ~ _By Ezra Pound_  
-Penyair, penterjemah dan penerbit dari Amerika Serikat
+> ~ _By Ivan Turgenev_  
+
