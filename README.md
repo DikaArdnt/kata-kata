@@ -1,4 +1,4 @@
-"**Kebanyakan orang tidak dapat memahami bagaimana orang lain dapat membuang ingus secara berbeda dari yang mereka lakukan.**"
+"**Neraka tidak untuk dicintai lagi.**"
 
-> ~ _By Ivan Turgenev_  
-
+> ~ _By Georges Bernanos_  
+Penulis dari Perancis
