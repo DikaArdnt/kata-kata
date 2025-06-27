@@ -1,4 +1,4 @@
-"**Sebagai pengurus aset kami, Anda ditugasi dengan kewajiban untuk menempatkan kepentingan pemegang saham di atas keuntungan pribadi atau motif lainnya.**"
+"**Kreativitas adalah kebiasan dan skill yang bisa terus dilatih.**"
 
-> ~ _By Daniel S. Loeb_  
-Investor dan manajer dana lindung nilai Amerika
+> ~ _By Yoris Sebastian_  
+Pengusaha dari Indonesia
