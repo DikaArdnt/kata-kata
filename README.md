@@ -1,4 +1,4 @@
-"**Kerja yang beres. Jangan cuma terima gaji aja yang semangat.**"
+"**Agar dapat mencintai, kamu perlu mengerti, karena cinta lahir dari pengertian. Jika kamu tidak mengerti seseorang, kamu tidak dapat mencintainya.**"
 
-> ~ _By Genk Kompor_  
-Genk Kompor 3
+> ~ _By Priska Devina_  
+Penulis dari Indonesia
