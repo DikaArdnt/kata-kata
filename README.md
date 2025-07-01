@@ -1,4 +1,4 @@
-"**Agar dapat mencintai, kamu perlu mengerti, karena cinta lahir dari pengertian. Jika kamu tidak mengerti seseorang, kamu tidak dapat mencintainya.**"
+"**Hidup itu dinamis. Tidak cukup hanya soal menerima. Kita harus mencari agar kita tahu dan menjadi sesuatu.**"
 
-> ~ _By Priska Devina_  
+> ~ _By Dini Fitria_  
 Penulis dari Indonesia
