@@ -1,4 +1,4 @@
-"**Keterbatasan kita dan keberhasilan akan didasarkan pada, paling sering, pada harapan Anda sendiri untuk diri kita sendiri. Apakah dalam pikiran kita akan berdiam diri, tubuh bertindak.**"
+"**Mereka yang tidak bisa hidup dengan rasa puas sering menjadi perusak kehidupan.**"
 
-> ~ _By Denis Waitley_  
-Penulis motivasi dan pelatih dari Amerika Serikat
+> ~ _By Anais Nin_  
+Penulis dan penari dari Perancis / Amerika Serikat
