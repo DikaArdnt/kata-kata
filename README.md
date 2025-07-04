@@ -1,4 +1,4 @@
-"**Mereka yang tidak bisa hidup dengan rasa puas sering menjadi perusak kehidupan.**"
+"**Perjalanan hidup seseorang sulit ditebak.**"
 
-> ~ _By Anais Nin_  
-Penulis dan penari dari Perancis / Amerika Serikat
+> ~ _By Andriyana_  
+Penulis dari Indonesia
