@@ -1,4 +1,4 @@
-"**Nah, seperti setiap kali Anda membuat film dokumenter, Anda harus berada di saat ini, dan Anda harus mampu memegang kendali untuk menangkap apa yang terjadi.**"
+"**Seorang pengacara yang baik tahu bagaimana caranya tutup mulut ketika dia memenangkan kasusnya.**"
 
-> ~ _By Brian De Palma_  
-Sutradara dan penulis skenario film Amerika
+> ~ _By Alan Dershowitz_  
+Penulis dan Pengacara dari Amerika
