@@ -1,4 +1,4 @@
-"**Seorang pengacara yang baik tahu bagaimana caranya tutup mulut ketika dia memenangkan kasusnya.**"
+"**Tragedi terbesar kehidupan bukanlah bahwa semua manusia akan binasa, melainkan bahwa mereka akan berhenti saling mencintai.**"
 
-> ~ _By Alan Dershowitz_  
-Penulis dan Pengacara dari Amerika
+> ~ _By William Somerset Maugham_  
+Penulis dari Inggris
