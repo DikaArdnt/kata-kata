@@ -1,4 +1,4 @@
-"**Tragedi terbesar kehidupan bukanlah bahwa semua manusia akan binasa, melainkan bahwa mereka akan berhenti saling mencintai.**"
+"**Rasa tidak memiliki sistem dan tidak memiliki bukti.**"
 
-> ~ _By William Somerset Maugham_  
-Penulis dari Inggris
+> ~ _By Susan Sontag_  
+Penulis dan aktivis politik dari Amerika Serikat
