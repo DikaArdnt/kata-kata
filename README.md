@@ -1,4 +1,4 @@
-"**Rasa tidak memiliki sistem dan tidak memiliki bukti.**"
+"**Seseorang harus memiliki sejumlah ketidaktahuan cerdas untuk pergi ke mana pun.**"
 
-> ~ _By Susan Sontag_  
-Penulis dan aktivis politik dari Amerika Serikat
+> ~ _By Charles F. Kettering_  
+Penemu dari Amerika Serikat
