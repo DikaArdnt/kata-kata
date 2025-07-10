@@ -1,4 +1,4 @@
-"**Seseorang harus memiliki sejumlah ketidaktahuan cerdas untuk pergi ke mana pun.**"
+"**Di musim panas, saya bermain bisbol Liga Kecil; sepak bola di musim gugur; bola basket di musim dingin.**"
 
-> ~ _By Charles F. Kettering_  
-Penemu dari Amerika Serikat
+> ~ _By Bobby Keys_  
+Pemain saksofon Amerika
