@@ -1,4 +1,4 @@
-"**Di musim panas, saya bermain bisbol Liga Kecil; sepak bola di musim gugur; bola basket di musim dingin.**"
+"**Masyarakat demokratis tidak bisa lagi memberikan kebebasan beragama fanatik untuk melakukan pelecehan dan pembunuhan kafir. Tindakan tersebut mengkhianati penghinaan terhadap hak asasi manusia yang menjiwai demokrasi dengan makna.**"
 
-> ~ _By Bobby Keys_  
-Pemain saksofon Amerika
+> ~ _By Armstrong Williams_  
+Komentator politik Amerika, pengusaha dan penulis
