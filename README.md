@@ -1,4 +1,4 @@
-"**Hidup di masa sekarang saja sama tidak wajarnya dengan hidup dalam kesendirian.**"
+"**1998. aku jalan-jalan saja. kawat berduri. aku makan-makan saja.**"
 
-> ~ _By Charles Cooley_  
-Sosiolog dari Amerika Serikat
+> ~ _By Galeh Pramudianto_  
+Penulis dari Indonesia
