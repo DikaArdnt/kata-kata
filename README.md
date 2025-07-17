@@ -1,4 +1,4 @@
-"**Membenci orang itu seperti membakar rumah Anda sendiri hanya untuk menyingkirkan seekor tikus.**"
+"**Para filsuf hanya menafsirkan dunia, dengan berbagai cara. Intinya, bagaimanapun, adalah untuk mengubahnya.**"
 
-> ~ _By Harry Emerson Fosdick_  
-Pendeta dari Amerika Serikat
+> ~ _By Karl Marx_  
+Ekonom dan filsuf dari Jerman
