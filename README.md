@@ -1,4 +1,4 @@
-"**Para filsuf hanya menafsirkan dunia, dengan berbagai cara. Intinya, bagaimanapun, adalah untuk mengubahnya.**"
+"**Rasa takut itu seperti otot. Saya tahu dari kehidupan saya sendiri bahwa semakin saya melatihnya, semakin alami untuk tidak membiarkan ketakutan menguasai saya.**"
 
-> ~ _By Karl Marx_  
-Ekonom dan filsuf dari Jerman
+> ~ _By Arianna Huffington_  
+Penulis Yunani-Amerika, kolumnis sindikasi, dan pengusaha
