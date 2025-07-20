@@ -1,4 +1,4 @@
-"**Ya sudah. Tapi, kalau kamu memang nggak mau lebih sama dia, kalau bisa, kamu tegaskan ke dia. Sebelum semuanya terlambat. Dia terlalu baik untuk sakit hati.**"
+"**Menjadi orang Amerika, menurut saya, adalah hal yang sangat sulit dalam seni, karena semua elemennya adalah Eropa.**"
 
-> ~ _By Sisca Spencer Hoky_  
-Penulis dari Indonesia
+> ~ _By Kingsley Amis_  
+Penulis dari Inggris
