@@ -1,4 +1,4 @@
-"**Pengacara tidak melayani semua orang ... Pengacara saat ini dapat berkata, 'Saya bukan orang yang membantu Anda dalam masalah itu; Saya tidak setuju dengan apa yang Anda coba lakukan; ' dan mereka bisa menolak orang itu, dan mereka bisa pergi ke tempat lain.**"
+"**Orang bodoh adalah mereka yang tak pernah memaafkan dan melupakan, orang naif adalah mereka yang memaafkan dan melupakan; mereka yang memaafkan, tetapi tidak melupakan adalah orang bijak.**"
 
-> ~ _By Bill Haslam_  
-Pengusaha dan politisi Amerika
+> ~ _By Thomas Szasz_  
+Psikiater dari Amerika Serikat
