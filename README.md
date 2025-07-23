@@ -1,4 +1,4 @@
-"**Orang bodoh adalah mereka yang tak pernah memaafkan dan melupakan, orang naif adalah mereka yang memaafkan dan melupakan; mereka yang memaafkan, tetapi tidak melupakan adalah orang bijak.**"
+"**Semua cara yang mungkin digunakan oleh orang tua yang tergila-gila untuk menyelesaikan tawar-menawar; dan tipu daya mengakhiri keahlian yang biasa ini.**"
 
-> ~ _By Thomas Szasz_  
-Psikiater dari Amerika Serikat
+> ~ _By Adelbert von Chamisso_  
+Penulis dan ahli ilmu hewan dari Jerman
