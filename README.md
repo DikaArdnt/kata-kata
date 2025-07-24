@@ -1,4 +1,4 @@
-"**Semua cara yang mungkin digunakan oleh orang tua yang tergila-gila untuk menyelesaikan tawar-menawar; dan tipu daya mengakhiri keahlian yang biasa ini.**"
+"**Pertanyaan yang paling mendasar bukanlah yang terbaik, tetapi siapa yang akan memutuskan apa yang terbaik.**"
 
-> ~ _By Adelbert von Chamisso_  
-Penulis dan ahli ilmu hewan dari Jerman
+> ~ _By Thomas Sowell_  
+Ekonom dari Amerik Serikat
