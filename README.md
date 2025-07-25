@@ -1,4 +1,4 @@
-"**Pertanyaan yang paling mendasar bukanlah yang terbaik, tetapi siapa yang akan memutuskan apa yang terbaik.**"
+"**Jika aku bisa lebih bahagia, itu karena kamu.**"
 
-> ~ _By Thomas Sowell_  
-Ekonom dari Amerik Serikat
+> ~ _By Arini Putri_  
+Penulis dari Indonesia
