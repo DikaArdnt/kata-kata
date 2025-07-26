@@ -1,4 +1,4 @@
-"**Jika aku bisa lebih bahagia, itu karena kamu.**"
+"**Para aktor sangat senang, mereka memiliki kejayaan tanpa tanggung jawab.**"
 
-> ~ _By Arini Putri_  
-Penulis dari Indonesia
+> ~ _By Alfred de Vigny_  
+Penyair dan penulis dari Perancis
