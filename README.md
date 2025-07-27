@@ -1,4 +1,4 @@
-"**Para aktor sangat senang, mereka memiliki kejayaan tanpa tanggung jawab.**"
+"**Tetap fokus daripada  tersinggung atau keluar jalur oleh orang lain.**"
 
-> ~ _By Alfred de Vigny_  
-Penyair dan penulis dari Perancis
+> ~ _By John C. Maxwell_  
+Penulis dan penbicara dari Amerika Serikat
