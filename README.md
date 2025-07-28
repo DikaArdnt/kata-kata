@@ -1,4 +1,4 @@
-"**Tetap fokus daripada  tersinggung atau keluar jalur oleh orang lain.**"
+"**Semua orang, tidak peduli berapa pun usia Anda, sekitar 24, 25 tahun ada di hati mereka.**"
 
-> ~ _By John C. Maxwell_  
-Penulis dan penbicara dari Amerika Serikat
+> ~ _By Bruce Willis_  
+Aktor Amerika
