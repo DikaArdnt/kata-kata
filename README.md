@@ -1,4 +1,4 @@
-"**Semua orang, tidak peduli berapa pun usia Anda, sekitar 24, 25 tahun ada di hati mereka.**"
+"**Jika kehormatan menguntungkan, maka semua orang akan menjadi terhormat.**"
 
-> ~ _By Bruce Willis_  
-Aktor Amerika
+> ~ _By Thomas Moore_  
+Penyair dan penulis dari Irlandia
