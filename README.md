@@ -1,4 +1,4 @@
-"**Jika kehormatan menguntungkan, maka semua orang akan menjadi terhormat.**"
+"**Begitu Anda mulai meletakkan kata-kata di atas kertas, Anda menghilangkan kemungkinan.**"
 
-> ~ _By Thomas Moore_  
-Penyair dan penulis dari Irlandia
+> ~ _By Joan Didion_  
+Eseis dari Amerika Serikat
