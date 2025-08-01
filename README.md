@@ -1,4 +1,4 @@
-"**Pengalaman dramatis tidak logis; ini mungkin tunduk pada jenis koherensi yang kita tunjukkan ketika kita berbicara, dalam kritik, tentang bentuk.**"
+"**Orang Jerman adalah orang yang paling filosofis di dunia, dan perokok terbesar: sekarang saya menelusuri filosofi mereka sampai ke kebiasaan merokok mereka. Merokok memiliki efek penenang pada saraf, dan memungkinkan seorang pria untuk menanggung penderitaan hidup ini (yang setiap orang memiliki bagiannya) tidak hanya dengan sopan, tetapi juga dengan bermartabat.**"
 
-> ~ _By Allen Tate_  
-Penyair dari Amerika Serikat
+> ~ _By George Borrow_  
+Penulis dari Inggris
