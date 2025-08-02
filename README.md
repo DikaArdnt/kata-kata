@@ -1,4 +1,4 @@
-"**Orang Jerman adalah orang yang paling filosofis di dunia, dan perokok terbesar: sekarang saya menelusuri filosofi mereka sampai ke kebiasaan merokok mereka. Merokok memiliki efek penenang pada saraf, dan memungkinkan seorang pria untuk menanggung penderitaan hidup ini (yang setiap orang memiliki bagiannya) tidak hanya dengan sopan, tetapi juga dengan bermartabat.**"
+"**Saya bukan manajer hebat; Saya mencoba menjadi pemimpin yang hebat. Dan bagi saya, itu sudah melalui proses bagaimana menjadi CEO hebat tapi bagaimana menjadi seorang Evan hebat, dan itu benar-benar menjadi tantangannya.**"
 
-> ~ _By George Borrow_  
-Penulis dari Inggris
+> ~ _By Evan Spiegel_  
+Pendiri dan CEO Aplikasi Snapchat
