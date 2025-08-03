@@ -1,4 +1,4 @@
-"**Saya bukan manajer hebat; Saya mencoba menjadi pemimpin yang hebat. Dan bagi saya, itu sudah melalui proses bagaimana menjadi CEO hebat tapi bagaimana menjadi seorang Evan hebat, dan itu benar-benar menjadi tantangannya.**"
+"**Kebiasaan bersamanya adalah ujian kebenaran, itu pasti benar: Aku sudah melakukannya sejak masa mudaku.**"
 
-> ~ _By Evan Spiegel_  
-Pendiri dan CEO Aplikasi Snapchat
+> ~ _By George Crabbe_  
+Penyair, pastor dan ahli bedah dari Inggris
