@@ -1,4 +1,4 @@
-"**Jika Anda menunda-nunda saat menghadapi masalah besar yang sulit... pecahkan masalah menjadi beberapa bagian, dan tangani satu bagian pada satu waktu.**"
+"**Jangan sampai hidupmu hanya dikontrol oleh kepedihan dan kepahitan.**"
 
-> ~ _By Robert Collier_  
-Penulis dari Amerika Serikat
+> ~ _By Stanley Meulen_  
+Penulis dari Indonesia
