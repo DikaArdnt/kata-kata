@@ -1,4 +1,4 @@
-"**Jenis hewan peliharaan favorit saya adalah anjing. Mereka setia, baik hati, dan menawarkan kasih sayang tanpa akhir. Teman saya Eric berkata, 'Semakin banyak orang yang saya temui, semakin saya menyukai anjing saya.' Pikiran lucu.**"
+"**Pengacara adalah satu-satunya orang di mana ketidaktahuan hukum tidak dihukum.**"
 
-> ~ _By Brendon Urie_  
-Penyanyi, penulis lagu, dan musisi Amerika
+> ~ _By Jeremy Bentham_  
+Filsuf dan pengacara dari Inggris
