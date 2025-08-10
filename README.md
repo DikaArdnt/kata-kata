@@ -1,4 +1,4 @@
-"**Pengacara adalah satu-satunya orang di mana ketidaktahuan hukum tidak dihukum.**"
+"**Setan selalu menemukan beberapa kerusakan untuk dilakukan oleh tangan-tangan yang malas.**"
 
-> ~ _By Jeremy Bentham_  
-Filsuf dan pengacara dari Inggris
+> ~ _By Isaac Watts_  
+Penulis dan teolog dari Inggris
