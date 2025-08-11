@@ -1,4 +1,4 @@
-"**Setan selalu menemukan beberapa kerusakan untuk dilakukan oleh tangan-tangan yang malas.**"
+"**Seseorang pernah mengatakan kepada saya bahwa video '… Baby One More Time' seharusnya adalah saya sebagai pahlawan super yang melawan monster robot raksasa.**"
 
-> ~ _By Isaac Watts_  
-Penulis dan teolog dari Inggris
+> ~ _By Britney Spears_  
+Penyanyi, penari, dan aktris dari Amerika Serikat
