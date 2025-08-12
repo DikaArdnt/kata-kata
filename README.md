@@ -1,4 +1,4 @@
-"**Seseorang pernah mengatakan kepada saya bahwa video '… Baby One More Time' seharusnya adalah saya sebagai pahlawan super yang melawan monster robot raksasa.**"
+"**Orang dewasa butuh meluangkan pandangan, tidak selalu mereka yang benar, kan? Bahkan kalau pelajaran didapatkan dari anak kecil pun orang dewasa harus menerima.**"
 
-> ~ _By Britney Spears_  
-Penyanyi, penari, dan aktris dari Amerika Serikat
+> ~ _By Ariestanabirah_  
+Penulis dari Indonesia
