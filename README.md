@@ -1,4 +1,4 @@
-"**Orang dewasa butuh meluangkan pandangan, tidak selalu mereka yang benar, kan? Bahkan kalau pelajaran didapatkan dari anak kecil pun orang dewasa harus menerima.**"
+"**Tiap orang yang bahagia pasti memiliki seseorang yang membuat dirinya merasa penting dan berarti.**"
 
-> ~ _By Ariestanabirah_  
+> ~ _By Sitta Karina_  
 Penulis dari Indonesia
