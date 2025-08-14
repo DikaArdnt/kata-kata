@@ -1,4 +1,4 @@
-"**Tiap orang yang bahagia pasti memiliki seseorang yang membuat dirinya merasa penting dan berarti.**"
+"**Persoalan hidup kita amatlah sederhana**"
 
-> ~ _By Sitta Karina_  
+> ~ _By Zeffry Alkatiri_  
 Penulis dari Indonesia
