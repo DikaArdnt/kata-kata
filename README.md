@@ -1,4 +1,4 @@
-"**Persoalan hidup kita amatlah sederhana**"
+"**Ada harga yang harus dibayar untuk tumbuh. Bayarannya adalah komitmen.**"
 
-> ~ _By Zeffry Alkatiri_  
-Penulis dari Indonesia
+> ~ _By Ed Cole_  
+Penulis dan pendeta dari Amerika Serikat
