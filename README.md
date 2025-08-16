@@ -1,4 +1,4 @@
-"**Ada harga yang harus dibayar untuk tumbuh. Bayarannya adalah komitmen.**"
+"**Jika pria hanya mau mengambil kesempatan untuk melakukan yang benar karena itu benar, alih-alih kepastian langsung dari keuntungan melakukan yang salah, betapa jauh lebih bahagianya hidup mereka.**"
 
-> ~ _By Ed Cole_  
-Penulis dan pendeta dari Amerika Serikat
+> ~ _By Benjamin Haydon_  
+Artis dari Britania Raya
