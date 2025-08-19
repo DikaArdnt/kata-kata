@@ -1,4 +1,4 @@
-"**Beberapa tidak akan mengenali kebenaran cermin saya. Biarkan mereka ingat bahwa saya di sini bukan untuk memantulkan permukaan... tetapi harus menembus ke dalam. Cermin saya menyelidiki sampai ke hati. Saya menulis kata-kata di dahi dan di sekitar sudut mulut. Wajah manusia saya lebih benar daripada yang asli.**"
+"**Tidak ada yang benar-benar bisa dilakukan tentang hewan. Apa pun yang Anda lakukan terlihat bodoh. Jawabannya tidak ada pada kita. Seolah-olah kita ditempatkan di dunia ini untuk menunjukkan betapa konyolnya mereka.**"
 
-> ~ _By Paul Klee_  
-Artis dari Swis
+> ~ _By Russell Hoban_  
+Penulis dari Amerika Serikat
