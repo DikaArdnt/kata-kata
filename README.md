@@ -1,4 +1,4 @@
-"**Tidak ada yang benar-benar bisa dilakukan tentang hewan. Apa pun yang Anda lakukan terlihat bodoh. Jawabannya tidak ada pada kita. Seolah-olah kita ditempatkan di dunia ini untuk menunjukkan betapa konyolnya mereka.**"
+"**Film adalah industri yang paling mahal dan berisiko tertinggi di dunia.**"
 
-> ~ _By Russell Hoban_  
-Penulis dari Amerika Serikat
+> ~ _By Ann Macbeth_  
+Penyulam, desainer, guru, dan penulis Inggris
