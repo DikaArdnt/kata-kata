@@ -1,4 +1,4 @@
-"**Film adalah industri yang paling mahal dan berisiko tertinggi di dunia.**"
+"**Kami ingin hidup, mencintai dan membangun masyarakat yang adil dan damai. Kami mendedikasikan diri kami untuk bekerja dengan tetangga kami hari demi hari untuk menciptakan masyarakat yang damai ini.**"
 
-> ~ _By Ann Macbeth_  
-Penyulam, desainer, guru, dan penulis Inggris
+> ~ _By Betty Williams_  
+Aktivis Irlandia
