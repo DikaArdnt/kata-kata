@@ -1,4 +1,4 @@
-"**Kami ingin hidup, mencintai dan membangun masyarakat yang adil dan damai. Kami mendedikasikan diri kami untuk bekerja dengan tetangga kami hari demi hari untuk menciptakan masyarakat yang damai ini.**"
+"**Aturan mainnya adalah jangan pernah berasumsi bahwa siapa pun, betapapun terhormatnya, akan mampu berdiri di bawah penyiksaan. Jika Tuan X, yang tahu keberadaan saya, tertangkap karena suatu alasan, saya harus pindah.**"
 
-> ~ _By Betty Williams_  
-Aktivis Irlandia
+> ~ _By Abraham Pais_  
+Fisikawan Belanda-Amerika
