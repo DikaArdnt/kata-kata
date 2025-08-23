@@ -1,4 +1,4 @@
-"**Aturan mainnya adalah jangan pernah berasumsi bahwa siapa pun, betapapun terhormatnya, akan mampu berdiri di bawah penyiksaan. Jika Tuan X, yang tahu keberadaan saya, tertangkap karena suatu alasan, saya harus pindah.**"
+"**Seorang anak laki-laki atau perempuan yang telah melewati delapan kelas harus memiliki pendidikan praktis yang lengkap dan harus telah menerima pelatihan khusus dalam beberapa bidang pekerjaan tertentu, yang cocok untuknya mencari nafkah.**"
 
-> ~ _By Abraham Pais_  
-Fisikawan Belanda-Amerika
+> ~ _By Arthur Capper_  
+Politisi Amerika
