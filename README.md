@@ -1,4 +1,4 @@
-"**adi itu bukan pura-pura sebagai pasangan, dong? Karena melihat alur percakapannya, aku jadi perempuan yang galau karena bau mulut.**"
+"**Aku bisa merasakan mereka sungguh marah padaku dan sungguh ingin menguasai diriku. Apakah ini bentuk balas dendam?**"
 
-> ~ _By Sakaki Tsukasa_  
-Penulis dari Jepang
+> ~ _By Afsir M_  
+Penulis Indonesia
