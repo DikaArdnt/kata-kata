@@ -1,4 +1,4 @@
-"**Aku bisa merasakan mereka sungguh marah padaku dan sungguh ingin menguasai diriku. Apakah ini bentuk balas dendam?**"
+"**Itulah mengapa begitu banyak bintang membuat foto di Eropa saat ini. Petugas pajak melakukan pencuri dari semua orang.**"
 
-> ~ _By Afsir M_  
-Penulis Indonesia
+> ~ _By Bud Abbott_  
+Komedian dan aktor Amerika
