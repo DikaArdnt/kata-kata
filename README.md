@@ -1,4 +1,4 @@
-"**Itulah mengapa begitu banyak bintang membuat foto di Eropa saat ini. Petugas pajak melakukan pencuri dari semua orang.**"
+"**Dari persamaan hak muncul identitas kepentingan tertinggi kita; Anda tidak dapat menumbangkan hak tetangga Anda tanpa melakukan pukulan berbahaya pada diri Anda sendiri.**"
 
-> ~ _By Bud Abbott_  
-Komedian dan aktor Amerika
+> ~ _By Carl Schurz_  
+Negarawan, jurnalis, dan reformis Amerika
