@@ -1,4 +1,4 @@
-"**Menjadi orang Amerika, menurut saya, adalah hal yang sangat sulit dalam seni, karena semua elemennya adalah Eropa.**"
+"**Pengusaha telah beralih dari gagasan bahwa seorang karyawan adalah aset jangka panjang bagi perusahaan, seseorang yang harus dipelihara dan dikembangkan, menjadi gagasan baru bahwa mereka dapat dibuang.**"
 
-> ~ _By Kingsley Amis_  
-Penulis dari Inggris
+> ~ _By Barbara Ehrenreich_  
+Jurnalis, humas, dan kolumnis Amerika
