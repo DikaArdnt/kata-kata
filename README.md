@@ -1,4 +1,4 @@
-"**Pengusaha telah beralih dari gagasan bahwa seorang karyawan adalah aset jangka panjang bagi perusahaan, seseorang yang harus dipelihara dan dikembangkan, menjadi gagasan baru bahwa mereka dapat dibuang.**"
+"**Banyak industri televisi yang begitu kejam. Secara umum, ada banyak sekali tayangan yang mudah dan hambar untuk ditonton. Anda dapat mendengarkannya kapan saja dan tahu persis di mana Anda berada di alur cerita karena hampir sama setiap minggunya.**"
 
-> ~ _By Barbara Ehrenreich_  
-Jurnalis, humas, dan kolumnis Amerika
+> ~ _By Adam Baldwin_  
+Aktor Amerika
