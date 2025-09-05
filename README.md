@@ -1,4 +1,4 @@
-"**Para kritikus kecil yang tampaknya berpikir bahwa ketika mereka mendeteksi kesalahan sesekali dari seorang pria hebat, mereka dalam beberapa derajat mengurangi dirinya ke tingkat mereka sendiri.**"
+"**Biasanya feeling cewek kan kuat kalau menyangkut orang yang dia sayang.**"
 
-> ~ _By Henry Thomas Buckle_  
-Sejarawan dari Inggris
+> ~ _By Pricillia A. W._  
+Zero Class
