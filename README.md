@@ -1,4 +1,4 @@
-"**Biasanya feeling cewek kan kuat kalau menyangkut orang yang dia sayang.**"
+"**Hasilnya adalah, lukisan saya harus dibakar sehingga seniman Inggris akhirnya bisa belajar.**"
 
-> ~ _By Pricillia A. W._  
-Zero Class
+> ~ _By David Herbert Lawrence_  
+Penulis dari Inggris
