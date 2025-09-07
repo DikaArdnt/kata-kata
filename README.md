@@ -1,4 +1,4 @@
-"**Hasilnya adalah, lukisan saya harus dibakar sehingga seniman Inggris akhirnya bisa belajar.**"
+"**Aku punya hal-hal yang lebih baik untuk dikerjakan daripada menaruh sekelompok katak bodoh di mana pun.**"
 
-> ~ _By David Herbert Lawrence_  
-Penulis dari Inggris
+> ~ _By Angie Sage_  
+Araminta Spook: Frognapped
