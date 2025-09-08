@@ -1,4 +1,4 @@
-"**Aku punya hal-hal yang lebih baik untuk dikerjakan daripada menaruh sekelompok katak bodoh di mana pun.**"
+"**Cinta muncul ke permukaan begitu kita menyadari bahwa manfaat suatu hubungan bukan apa yang akan kita terima dari orang lain, melainkan sebaliknya.**"
 
-> ~ _By Angie Sage_  
-Araminta Spook: Frognapped
+> ~ _By Glenn Van Ekeren_  
+Penulis buku dari Amerika Serikat
