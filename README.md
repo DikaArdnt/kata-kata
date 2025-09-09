@@ -1,4 +1,4 @@
-"**Cinta muncul ke permukaan begitu kita menyadari bahwa manfaat suatu hubungan bukan apa yang akan kita terima dari orang lain, melainkan sebaliknya.**"
+"**Mungkin ia tipe cowok pasif? Mungkin aku perlu sedikit memberi sinyal? Atau mungkin ia ada pertimbangan lain? Entahlah.**"
 
-> ~ _By Glenn Van Ekeren_  
-Penulis buku dari Amerika Serikat
+> ~ _By Pratama Yoga Nugroho_  
+Penulis dari Indonesia
