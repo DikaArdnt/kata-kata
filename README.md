@@ -1,4 +1,4 @@
-"**Mungkin ia tipe cowok pasif? Mungkin aku perlu sedikit memberi sinyal? Atau mungkin ia ada pertimbangan lain? Entahlah.**"
+"**Perjalanan tidak selalu sempurna, tetapi selalu layak untuk ditempuh.**"
 
-> ~ _By Pratama Yoga Nugroho_  
-Penulis dari Indonesia
+> ~ _By Kara Goucher_  
+Atlet dari Amerika
