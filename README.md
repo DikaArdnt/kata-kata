@@ -1,4 +1,4 @@
-"**Ada beberapa jenis agama, tidak hanya di berbagai bagian pulau, tetapi bahkan di setiap kota; beberapa menyembah matahari, yang lain bulan atau salah satu dari planet-planet.**"
+"**Ketika saya melihat opera saya di Eropa, mereka selalu menganggap saya lebih Amerika daripada ketika saya mendengarnya di sini. Saya tidak bisa memberi tahu Anda fenomena apa itu.**"
 
-> ~ _By Thomas Moore_  
-Penyair dan penulis dari Irlandia
+> ~ _By Carlisle Floyd_  
+Komposer opera Amerika
