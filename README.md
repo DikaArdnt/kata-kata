@@ -1,4 +1,4 @@
-"**Ketika saya melihat opera saya di Eropa, mereka selalu menganggap saya lebih Amerika daripada ketika saya mendengarnya di sini. Saya tidak bisa memberi tahu Anda fenomena apa itu.**"
+"**Gali ruang dirimu di internet. Itu adalah salah satu investasi terbaik, di mana kamu bisa berekspresi dan berbagi karya.**"
 
-> ~ _By Carlisle Floyd_  
-Komposer opera Amerika
+> ~ _By Austin Kleon_  
+Penulis dari Amerika Serikat
