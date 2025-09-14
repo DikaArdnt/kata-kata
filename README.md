@@ -1,4 +1,4 @@
-"**Gali ruang dirimu di internet. Itu adalah salah satu investasi terbaik, di mana kamu bisa berekspresi dan berbagi karya.**"
+"**Bila engkau hendak memuji seseorang, pujilah Allah. Karena tiada seorang manusia pun lebih banyak dalam memberi kepadamu dan lebih santun lembut kepadamu selain Allah.**"
 
-> ~ _By Austin Kleon_  
-Penulis dari Amerika Serikat
+> ~ _By Umar bin Khattab_  
+Khalifah kedua
