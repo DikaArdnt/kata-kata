@@ -1,4 +1,4 @@
-"**Bila engkau hendak memuji seseorang, pujilah Allah. Karena tiada seorang manusia pun lebih banyak dalam memberi kepadamu dan lebih santun lembut kepadamu selain Allah.**"
+"**Banyak pendidikan saat ini yang berjalan sangat tidak efektif. Kita terlalu sering memberikan generasi muda rangkaian bunga dimana kita seharusnya mengajarkan mereka bagaimana menumbuhkan tanaman mereka sendiri.**"
 
-> ~ _By Umar bin Khattab_  
-Khalifah kedua
+> ~ _By John W. Gardner_  
+Politikus dari Amerika-Serikat
