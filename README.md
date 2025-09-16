@@ -1,4 +1,4 @@
-"**Banyak pendidikan saat ini yang berjalan sangat tidak efektif. Kita terlalu sering memberikan generasi muda rangkaian bunga dimana kita seharusnya mengajarkan mereka bagaimana menumbuhkan tanaman mereka sendiri.**"
+"**Nalar manusia terkadang takkan mampu menguraikan rasionalitas di balik takdir yang Tuhan tetapkan. Kadang kita hanya perlu rela tanpa banyak tanya.**"
 
-> ~ _By John W. Gardner_  
-Politikus dari Amerika-Serikat
+> ~ _By Tasniem Fauzia Rais_  
+Penulis, puteri Amien Rais
