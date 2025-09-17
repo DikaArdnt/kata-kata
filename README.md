@@ -1,4 +1,4 @@
-"**Nalar manusia terkadang takkan mampu menguraikan rasionalitas di balik takdir yang Tuhan tetapkan. Kadang kita hanya perlu rela tanpa banyak tanya.**"
+"**Tidak, tidak ada yang benar-benar membuatku kesal.**"
 
-> ~ _By Tasniem Fauzia Rais_  
-Penulis, puteri Amien Rais
+> ~ _By Diana Ross_  
+Penyanyi soul Amerika
