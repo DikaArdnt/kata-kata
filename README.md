@@ -1,4 +1,4 @@
-"**Tidak, tidak ada yang benar-benar membuatku kesal.**"
+"**Celakalah, celaka, celakalah ... sebentar lagi kita semua akan mati. Oleh karena itu marilah kita bersikap seolah-olah kita sudah mati.**"
 
-> ~ _By Diana Ross_  
-Penyanyi soul Amerika
+> ~ _By Raymond Chandler_  
+Penulis dari Amerika Serikat
