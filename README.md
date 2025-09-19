@@ -1,4 +1,4 @@
-"**Celakalah, celaka, celakalah ... sebentar lagi kita semua akan mati. Oleh karena itu marilah kita bersikap seolah-olah kita sudah mati.**"
+"**Kesederhanaan adalah warna kebajikan.**"
 
-> ~ _By Raymond Chandler_  
-Penulis dari Amerika Serikat
+> ~ _By Diogenes of Sinope_  
+Filsuf Yunani dan salah satu pendiri filsafat Sinis
