@@ -1,4 +1,4 @@
-"**Kesederhanaan adalah warna kebajikan.**"
+"**Percintaan itu fajar perkawinan. Perkawinan itu senja percintaan.**"
 
-> ~ _By Diogenes of Sinope_  
-Filsuf Yunani dan salah satu pendiri filsafat Sinis
+> ~ _By John Andrew Holmes_  
+Dokter dan penulis dari Amerika Serikat
