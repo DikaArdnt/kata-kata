@@ -1,4 +1,4 @@
-"**Percintaan itu fajar perkawinan. Perkawinan itu senja percintaan.**"
+"**Semua miliku kecil dan sederhana, kecuali hati dan kepercayaan diri yang mengelembung sebesar gajah.**"
 
-> ~ _By John Andrew Holmes_  
-Dokter dan penulis dari Amerika Serikat
+> ~ _By Ahmad Fuadi_  
+Penulis dari Indonesia
