@@ -1,4 +1,4 @@
-"**Semua miliku kecil dan sederhana, kecuali hati dan kepercayaan diri yang mengelembung sebesar gajah.**"
+"**Pengetahuan tak punya makna jika Anda tidak mempraktikkannya.**"
 
-> ~ _By Ahmad Fuadi_  
-Penulis dari Indonesia
+> ~ _By Anton Chekhov_  
+Penulis dari Rusia
