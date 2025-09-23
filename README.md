@@ -1,4 +1,4 @@
-"**Pengetahuan tak punya makna jika Anda tidak mempraktikkannya.**"
+"**Tuhan, bisakah aku menerima hukum-Mu tanpa meragukannya lebih dahulu? Karena itu Tuhan, maklumilah lebih dulu bila aku masih ragu akan kebenaran hukum-hukum-Mu. Jika Engkau tak suka hal itu, berilah aku pengertian-pengertian sehingga keraguan itu hilang. Tuhan, murkakah Engkau bila aku berbicara dengan hati dan otak yang bebas, hati dan otak sendiri yang telah Engkau berikan kpadaku dengan kemampuan bebasnya sekali ? Tuhan, aku ingin bertanya pada Engkau dalam suasana bebas. Aku percaya, Engkau tidak hanya benci pada ucapan-ucapan yang munafik, tapi juga benci pada pikiran-pikiran yang munafik, yaitu pikiran-pikiran yang tidak berani memikirkan yang timbul dalam pikirannya, atau pikiran yang pura-pura tidak tahu akan pikirannya sendiri.**"
 
-> ~ _By Anton Chekhov_  
-Penulis dari Rusia
+> ~ _By Ahmad Wahib_  
+Pemikir dan pembaharu Islam dari Indonesia
