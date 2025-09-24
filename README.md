@@ -1,4 +1,4 @@
-"**Tuhan, bisakah aku menerima hukum-Mu tanpa meragukannya lebih dahulu? Karena itu Tuhan, maklumilah lebih dulu bila aku masih ragu akan kebenaran hukum-hukum-Mu. Jika Engkau tak suka hal itu, berilah aku pengertian-pengertian sehingga keraguan itu hilang. Tuhan, murkakah Engkau bila aku berbicara dengan hati dan otak yang bebas, hati dan otak sendiri yang telah Engkau berikan kpadaku dengan kemampuan bebasnya sekali ? Tuhan, aku ingin bertanya pada Engkau dalam suasana bebas. Aku percaya, Engkau tidak hanya benci pada ucapan-ucapan yang munafik, tapi juga benci pada pikiran-pikiran yang munafik, yaitu pikiran-pikiran yang tidak berani memikirkan yang timbul dalam pikirannya, atau pikiran yang pura-pura tidak tahu akan pikirannya sendiri.**"
+"**Pengusaha yang baik dapat mengelola, tetapi tidak ada seorang pun selain pengusaha yang dapat berwirausaha, apalagi membantu membangun dan memimpin komunitas wirausahawan sosial terkemuka dunia dan sekutu pengusaha bisnis teratas mereka.**"
 
-> ~ _By Ahmad Wahib_  
-Pemikir dan pembaharu Islam dari Indonesia
+> ~ _By Bill Drayton_  
+Pengusaha sosial Amerika
