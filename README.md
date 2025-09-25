@@ -1,4 +1,4 @@
-"**Pengusaha yang baik dapat mengelola, tetapi tidak ada seorang pun selain pengusaha yang dapat berwirausaha, apalagi membantu membangun dan memimpin komunitas wirausahawan sosial terkemuka dunia dan sekutu pengusaha bisnis teratas mereka.**"
+"**Kadang2 bila kau tak bertanya, itu bukan karena kau takut bahwa akan ada yg berbohong padamu. Justru karena kau takut mereka akan mengatakan hal yg sesungguhnya.**"
 
-> ~ _By Bill Drayton_  
-Pengusaha sosial Amerika
+> ~ _By Jody Picoult_  
+Vanishing Act
