@@ -1,4 +1,4 @@
-"**Kadang2 bila kau tak bertanya, itu bukan karena kau takut bahwa akan ada yg berbohong padamu. Justru karena kau takut mereka akan mengatakan hal yg sesungguhnya.**"
+"**Marriage is not a wedding. Pernikahan bukan resepsi pesta. Arti marriage sangat sakral karena menyangkut jiwa dua orang yang saling mencintai untuk selamanya bersama dalam satu ikatan janji. Sementara itu arti wedding hanya sekadar rangkaian upacara pesta menuju arti pernikahan yang sebenarnya.**"
 
-> ~ _By Jody Picoult_  
-Vanishing Act
+> ~ _By Seplia_  
+Penulis dari Indonesia
