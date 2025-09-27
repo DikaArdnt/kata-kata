@@ -1,4 +1,4 @@
-"**Marriage is not a wedding. Pernikahan bukan resepsi pesta. Arti marriage sangat sakral karena menyangkut jiwa dua orang yang saling mencintai untuk selamanya bersama dalam satu ikatan janji. Sementara itu arti wedding hanya sekadar rangkaian upacara pesta menuju arti pernikahan yang sebenarnya.**"
+"**Ini bukanlah wanita yang cerdas v. Wanita yang bodoh; bukan pula wanita kulit putih vs. hitam, cokelat, dan merah, itu bahkan bukan penyebab wanita vs. pria. Nay, pembenaran terkuat wanita ini untuk berbicara bahwa dunia perlu mendengar suaranya.**"
 
-> ~ _By Seplia_  
-Penulis dari Indonesia
+> ~ _By Anna Julia Cooper_  
+Penulis, aktivis, dan sosiolog Amerika
