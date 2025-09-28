@@ -1,4 +1,4 @@
-"**Ini bukanlah wanita yang cerdas v. Wanita yang bodoh; bukan pula wanita kulit putih vs. hitam, cokelat, dan merah, itu bahkan bukan penyebab wanita vs. pria. Nay, pembenaran terkuat wanita ini untuk berbicara bahwa dunia perlu mendengar suaranya.**"
+"**Ingat untuk memilih.**"
 
-> ~ _By Anna Julia Cooper_  
-Penulis, aktivis, dan sosiolog Amerika
+> ~ _By Günter Grass_  
+Penulis dan Peraih Nobel sastra (1999) dari Jerman
