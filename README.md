@@ -1,4 +1,4 @@
-"**Ingat untuk memilih.**"
+"**Saya berhenti menginginkan apa yang saya cari, mencarinya.**"
 
-> ~ _By Günter Grass_  
-Penulis dan Peraih Nobel sastra (1999) dari Jerman
+> ~ _By Antonio Porchia_  
+Penyair dari Argentina
