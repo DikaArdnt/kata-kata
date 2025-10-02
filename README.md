@@ -1,4 +1,4 @@
-"**Saya tidak pernah berhenti tercengang oleh hal-hal yang dipercaya orang-orang yang tidak dapat dipercaya.**"
+"**Sebuah kepercayaan yang sering kita khianati, jika memang benar-benar membuat tenang, kenapa malah mengubah kita menjadi garang?**"
 
-> ~ _By Leo Rosten_  
-Ilmuwan dari Polandia / Amerika Serikat
+> ~ _By Valiant Budi_  
+Novelis dari Indonesia
