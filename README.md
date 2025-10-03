@@ -1,4 +1,4 @@
-"**Sebuah kepercayaan yang sering kita khianati, jika memang benar-benar membuat tenang, kenapa malah mengubah kita menjadi garang?**"
+"**Bukannya kalau cewek lagi suka sama cowok, dia selalu pengen deket terus sama cowok itu ya?**"
 
-> ~ _By Valiant Budi_  
-Novelis dari Indonesia
+> ~ _By Trisella_  
+Heart Reset
