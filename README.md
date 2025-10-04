@@ -1,4 +1,4 @@
-"**Bukannya kalau cewek lagi suka sama cowok, dia selalu pengen deket terus sama cowok itu ya?**"
+"**Setiap manusia memiliki jalan kehidupan sendiri-sendiri, tinggal bagaimana kita menyikapinya.**"
 
-> ~ _By Trisella_  
-Heart Reset
+> ~ _By Stella Erner_  
+Dunia Tak Seindah Pelangi
