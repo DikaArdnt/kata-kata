@@ -1,4 +1,4 @@
-"**Setiap manusia memiliki jalan kehidupan sendiri-sendiri, tinggal bagaimana kita menyikapinya.**"
+"**Sebagai individu, bukan sebagai bos perusahaan, saya sangat tertarik dengan balap motor.**"
 
-> ~ _By Stella Erner_  
-Dunia Tak Seindah Pelangi
+> ~ _By Carlos Ghosn_  
+Pengusaha Brasil-Prancis-Lebanon, mantan CEO Renault
