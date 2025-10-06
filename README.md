@@ -1,4 +1,4 @@
-"**Sebagai individu, bukan sebagai bos perusahaan, saya sangat tertarik dengan balap motor.**"
+"**Kami membuat film yang kami sendiri ingin lihat dan kemudian berharap orang lain juga ingin melihatnya. Jika Anda mencoba menganalisis audiens atau berpikir ada resep canggih untuk sukses, maka menurut saya Anda akan hancur. Anda membuatnya terlalu rumit.**"
 
-> ~ _By Carlos Ghosn_  
-Pengusaha Brasil-Prancis-Lebanon, mantan CEO Renault
+> ~ _By Brad Bird_  
+Animator, sutradara dan penulis skenario Amerika
