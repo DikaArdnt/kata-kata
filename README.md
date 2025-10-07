@@ -1,4 +1,4 @@
-"**Kami membuat film yang kami sendiri ingin lihat dan kemudian berharap orang lain juga ingin melihatnya. Jika Anda mencoba menganalisis audiens atau berpikir ada resep canggih untuk sukses, maka menurut saya Anda akan hancur. Anda membuatnya terlalu rumit.**"
+"**Set Mandelbrot mencakup ruang kecil namun membawa sejumlah besar implikasi berbeda. Apakah itu batu nisan yang pas? Benar.**"
 
-> ~ _By Brad Bird_  
-Animator, sutradara dan penulis skenario Amerika
+> ~ _By Benoit Mandelbrot_  
+Ahli matematika dan polimatik Perancis dan Amerika kelahiran Polandia
