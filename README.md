@@ -1,4 +1,4 @@
-"**Set Mandelbrot mencakup ruang kecil namun membawa sejumlah besar implikasi berbeda. Apakah itu batu nisan yang pas? Benar.**"
+"**Pada abad ke dua puluh satu, robot akan mengambil tempat di mana budak bekerja di peradaban kuno.**"
 
-> ~ _By Benoit Mandelbrot_  
-Ahli matematika dan polimatik Perancis dan Amerika kelahiran Polandia
+> ~ _By Nicola Tesla_  
+Penemu, insinyur listrik, dan fisikawan dari Amerika Serikat
