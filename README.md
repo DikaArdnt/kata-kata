@@ -1,4 +1,4 @@
-"**Untuk percaya hanya kemungkinan, bukan iman, tetapi hanya filsafat.**"
+"**Manusia belajar dari waktu dan kejadian, itu pun jika ia mau mengalahkan egonya.**"
 
-> ~ _By Sir Thomas Browne_  
-Penulis, ahli fisika dan filsuf dari Britania Raya
+> ~ _By Jaya Setiabudi_  
+Penulis dari Indonesia
