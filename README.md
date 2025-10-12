@@ -1,4 +1,4 @@
-"**Manusia belajar dari waktu dan kejadian, itu pun jika ia mau mengalahkan egonya.**"
+"**Suaraku terdengar serak setelah operasi pada nodul vokal besar.**"
 
-> ~ _By Jaya Setiabudi_  
-Penulis dari Indonesia
+> ~ _By Bonnie Tyler_  
+Penyanyi Welsh
