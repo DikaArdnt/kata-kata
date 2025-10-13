@@ -1,4 +1,4 @@
-"**Suaraku terdengar serak setelah operasi pada nodul vokal besar.**"
+"**Ya sudah. Tapi, kalau kamu memang nggak mau lebih sama dia, kalau bisa, kamu tegaskan ke dia. Sebelum semuanya terlambat. Dia terlalu baik untuk sakit hati.**"
 
-> ~ _By Bonnie Tyler_  
-Penyanyi Welsh
+> ~ _By Sisca Spencer Hoky_  
+Penulis dari Indonesia
