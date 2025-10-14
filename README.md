@@ -1,4 +1,4 @@
-"**Ya sudah. Tapi, kalau kamu memang nggak mau lebih sama dia, kalau bisa, kamu tegaskan ke dia. Sebelum semuanya terlambat. Dia terlalu baik untuk sakit hati.**"
+"**Burung-burung di sarang kecil mereka setuju; dan 'Ini pemandangan memalukan, ketika anak-anak dari satu keluarga jatuh, dan mencaci, dan berkelahi.**"
 
-> ~ _By Sisca Spencer Hoky_  
-Penulis dari Indonesia
+> ~ _By Isaac Watts_  
+Penulis dan teolog dari Inggris
