@@ -1,4 +1,4 @@
-"**Burung-burung di sarang kecil mereka setuju; dan 'Ini pemandangan memalukan, ketika anak-anak dari satu keluarga jatuh, dan mencaci, dan berkelahi.**"
+"**Jika setiap hari adalah awal, maka kau tidak akan pernah tua. Kau hanya akan tumbuh.**"
 
-> ~ _By Isaac Watts_  
-Penulis dan teolog dari Inggris
+> ~ _By Gail Sheehy_  
+Penulis dan wartawan dari Amerika Serikat
