@@ -1,4 +1,4 @@
-"**Jika setiap hari adalah awal, maka kau tidak akan pernah tua. Kau hanya akan tumbuh.**"
+"**Hal yang paling penting, paling sulit, dan pokok dalam musik, yaitu waktu.**"
 
-> ~ _By Gail Sheehy_  
-Penulis dan wartawan dari Amerika Serikat
+> ~ _By Wolfgang Amadeus Mozart_  
+Penyusun, pianis, pemain biola dan konduktor dari Austria
