@@ -1,4 +1,4 @@
-"**Ketika seorang wanita mengatakan lebih baik tidur bersama suaminya daripada dengan aktor tampan Warren Beaty, mungkin itu karena Warren tak pernah memintanya.**"
+"**Jika kesuksesan TV ini datang di usia dua puluhan dan saya menjadi orang yang berdebar-debar, saya akan menjadi sangat bodoh. Saya akan mengalami banyak situasi yang sebenarnya saya harap tidak saya lakukan.**"
 
-> ~ _By Judith Viorst_  
-Penulis dan wartawan dari Amerika Serikat
+> ~ _By Brendan Coyle_  
+Aktor Inggris-Irlandia
