@@ -1,4 +1,4 @@
-"**Jika kesuksesan TV ini datang di usia dua puluhan dan saya menjadi orang yang berdebar-debar, saya akan menjadi sangat bodoh. Saya akan mengalami banyak situasi yang sebenarnya saya harap tidak saya lakukan.**"
+"**Kadang-kadang mereka akan memberikan perang dan tidak ada yang akan datang.**"
 
-> ~ _By Brendan Coyle_  
-Aktor Inggris-Irlandia
+> ~ _By Carl Sandburg_  
+Penyair dari Amerika Serikat
