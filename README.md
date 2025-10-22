@@ -1,4 +1,4 @@
-"**Kadang-kadang mereka akan memberikan perang dan tidak ada yang akan datang.**"
+"**Ketenaran diminta untuk menandatangani tanda tangan Anda di belakang bungkus rokok.**"
 
-> ~ _By Carl Sandburg_  
-Penyair dari Amerika Serikat
+> ~ _By Billy Connolly_  
+Komedian dan aktor Skotlandia
