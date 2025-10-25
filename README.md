@@ -1,4 +1,4 @@
-"**Namanya aja kebutuhan, pasti beda-bedalah tiap orang. Ada yang menganggap bisa makan sehari tiga kali aja udah bilang hidupnya cukup. Tapi, ada juga yang mematok kebahagiannya dalam walking closet yang berisi Birkin, Prada, Gucci, dan lain-lain…**"
+"**Buku-buku yang menyimpan pengetahuan kuno ini tidak pernah bisa menerima kedudukan mereka disingkirkan.**"
 
-> ~ _By Herlina P. Dewi_  
-Seribu Kerinduan
+> ~ _By John Connolly_  
+Penulis dari Irlandia
