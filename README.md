@@ -1,4 +1,4 @@
-"**Buku-buku yang menyimpan pengetahuan kuno ini tidak pernah bisa menerima kedudukan mereka disingkirkan.**"
+"**Bila Anda menderita bersyukurlah itu pertanda Anda hidup.**"
 
-> ~ _By John Connolly_  
-Penulis dari Irlandia
+> ~ _By Elbert Hubbard_  
+Penulis dan penerbit dari Amerika Serikat
