@@ -1,4 +1,4 @@
-"**Bila Anda menderita bersyukurlah itu pertanda Anda hidup.**"
+"**Keingintahuan membunuh kucing itu, tetapi untuk sesaat aku menjadi tersangka.**"
 
-> ~ _By Elbert Hubbard_  
-Penulis dan penerbit dari Amerika Serikat
+> ~ _By Steven Wright_  
+Penulis, Produser Film, Komika, Aktor dari Amerika
