@@ -1,4 +1,4 @@
-"**Keingintahuan membunuh kucing itu, tetapi untuk sesaat aku menjadi tersangka.**"
+"**Terlalu banyak mikirin urusan perut, bikin kita tidak sempat bermimpi.**"
 
-> ~ _By Steven Wright_  
-Penulis, Produser Film, Komika, Aktor dari Amerika
+> ~ _By Dedy Dahlan_  
+Penulis, pembicara motivasi dan pengusaha dari Indonesia
