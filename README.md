@@ -1,4 +1,4 @@
-"**Terlalu banyak mikirin urusan perut, bikin kita tidak sempat bermimpi.**"
+"**Kami adalah tipe orang yang terobsesi dengan satu kata ... tetapi kami hanya memiliki satu kesempatan untuk melakukannya dengan benar dalam konser. Sulit pertama kali saya berlatih dengan mereka. Saya sangat gugup sehingga pita suara saya lumpuh selama sekitar setengah jam.**"
 
-> ~ _By Dedy Dahlan_  
-Penulis, pembicara motivasi dan pengusaha dari Indonesia
+> ~ _By Amy Tan_  
+Penulis dari Amerika Serikat / Cina
